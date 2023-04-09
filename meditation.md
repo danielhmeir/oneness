@@ -1,10 +1,10 @@
 I was sitting with my legs crossed, straight back, right hand in the left, eyes closed…
 
-When I opened my eyes I was a young man approaching in a polite manner. He greeted me and said “Can you please describe what you are doing”.
+When I opened my eyes I saw a young man approaching in a polite manner. He greeted me and said “Can you please describe what you are doing”.
 
 I asked him to sit near me, cross his legs, the right leg inside, the left leg outside, straighten the back, put the right hand into the left. The right hand is the Beyond, the left hand is the world. Just as you are dressed in this body, so is the world the body of the Beyond, so is the right side folded into the left, among other reasons. It is a property of the mind to rationalize. Meditation leads to knowing through experience. Sitting with a straightened back reduces sleepiness. It is also possible to kneel or stand.
 
-Then I asked him to put the tip of his tongue behind the upper teeth. Meditation expands the perception by reducing the unnecessary disturbances. Pointing the tongue up is to direct the mind up, among other reasons.
+Then I asked him to put the tip of his tongue above the upper teeth. Meditation expands the perception by reducing the unnecessary disturbances. Pointing the tongue up is to direct the mind up, among other reasons.
 
 Then I asked him to close the eyes and look up at the light and then beyond the light.
 
@@ -28,5 +28,5 @@ I said “You are right but focusing allows to calm down the mind”
 
 If you do not assume that there is something beyond, you will never reach it. If you assume that there is something beyond, you can infinitely expand. If you think that it is just a psychological trick, it works in any case. If you don’t try, you will definitely not see a result. The fact that you’re asking demonstrates this quality of your mind. Meditation is a science because anyone can try it and, depending on your current state and on how you structure your life, you can progress step by step and discover the same layers of reality that many people before have done.
 
-God bless you with good deeds, caring for others and Him.
+God bless you with good deeds.
 ”
