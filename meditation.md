@@ -26,3 +26,5 @@ If you do not assume that there is someone beyond, you will never reach it. If y
 
 God bless you with good deeds.
 ”
+
+Adapted from the [source](meditation-hebrew.md).
