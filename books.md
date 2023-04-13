@@ -25,6 +25,7 @@ I chose these books because they list the steps on the path of personal growth. 
 - Yoga Sutras of [Patanjali](https://en.wikipedia.org/wiki/Patanjali). I find [this translation](https://www.amazon.com/Yoga-Sutras-Patanjali-Swami-Satchidananda/dp/1938477073) usable and [this translation](https://www.amazon.com/Yoga-Sutras-Patañjali-Translation-Commentary/dp/0865477361) useful if you would like to read its main/standard/classical commanetary. They also contain the Sanscrit source.
 - [Bhagavad Gita](https://www.amazon.com/Srimad-Bhagavad-Gita-Bhasya-Sankaracarya/dp/8178235072/). It describes various types of yoga and describes how to meditate. The linked book is with [Shankara](https://en.wikipedia.org/wiki/Adi_Shankara)'s commentary. It is worth reading about Shankara and various schools of [Vedanta](https://en.wikipedia.org/wiki/Vedanta#Overview_of_the_main_schools_of_Vedanta) in order to be more objective about what you're reading. As the famous Dude said ["It's just your opinion, man"](https://www.youtube.com/watch?v=j95kNwZw8YY).
 - [Yoga Upanishads](yoga-upanishads.pdf) are 20 texts describing Yoga and some of them describing how to do yoga, including meditation. Printed version is [here]([)](https://www.amazon.com/dp/8185141584).
+- [Pratyabhijnahrdayam](pratyabhijnahrdayam.pdf), or The Essence of Self-Recognition, explains the essence of the Kashmiri Shaivism. It lists the steps leading to the final liberation.
 
 ## Theravada
 
