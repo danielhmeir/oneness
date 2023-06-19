@@ -1,4 +1,4 @@
-(Adapted from the Hebrew for general use)
+(Adapted from Hebrew for general use)
 
 I am giving you tools to expand your perception of reality. 
 
