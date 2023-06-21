@@ -121,4 +121,8 @@ After reaching the state of Love with the Infinite One, it feels like returning 
 
 External path
 
-The external path is suitable for people who intuitively think that there is Something beyond our narrow perception of the physical world. I am going to outline this path here…
+The external path is suitable for people who intuitively think that there is Something beyond our narrow perception of the physical world. 
+
+Go out into nature. Smell its fragrance, hear its sounds, look around. All this beauty is a veil between you and the Beyond. But at the same time each smell, sound, plant and animal is a tool of Beyond to interact with you. “Turn” towards Beyond, stand before It and stay in a permanent connection with it in every place where you are, in every action that you do.
+
+TO BE CONTINUED
