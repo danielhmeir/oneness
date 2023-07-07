@@ -111,9 +111,9 @@ This changes your perception and abilities. This state is possible only if you p
 
 Love
 
-Being in Unity is lonely because there is no one to interact with. There is no one to be grateful to for helping climb this mountain. No one to be caring for. You may think that loneliness is just a feeling external to your real self, just a ripple on the surface. You are right. But it is also a reflection, a projection of the state of the inner self. It is also a paradoxical state because in order to attain it, you must shed your individuality but now it is only you.
+Being in Unity is lonely because there is no one to interact with. There is no one to be grateful to for helping climb this mountain. No one to be caring for. You may think that loneliness is just a feeling external to your real self, just a ripple on the surface. You are right. But it is also a reflection, a projection of the state of the inner self. It is also a paradoxical state because in order to attain it, you must shed your individuality but now it is only you, you in everything but only you.
 Therefore to retain humility, gratitude and care, we take a step back and now we are still one with the Infinite but also we can be with It. Now you know the Infinity and you are in a constant direct connection with it. At this point, your every action is dictated by your connection with the Infinite, your heart and mind are filled with humility, gratitude and care. The intensity may vary from quiet gratitude to a desire to swirl in a dance with the Infinite.
-In this state you are never alone, you are always with the Infinite, you do everything together, you can always turn to It, bow to It, say You, say we, say thank You.
+In this state you are never alone, you are always with the Infinite, you do everything together, you can always turn to It, bow to It, say You, say we, say thank You. Infinity in everything is no longer an abstract philosophical or religious concept but the most intimate connection. This intimacy is key to understanding the external path that I am going to describe later.
 Also, in this state, the only possible way to view all beings is through compassion.
 
 Home
@@ -127,7 +127,14 @@ The external path is suitable for people who intuitively think that there is Som
 
 Go out into nature. Smell its fragrance, hear its sounds, look around. All this beauty is a veil between you and the Beyond. But at the same time each smell, sound, ray of light is a tool of Beyond to interact with you. “Turn” towards Beyond, bow to It, say I know you are around, say I am asking to be with You, stay in this state of constant awareness in every place where you are, in every action that you do, and everything that you do will gradually align with humility, gratitude and caring.
 
+As you see, it is similar to the major religions because we have the idea that there is Something beyond the physical and we turn to it in a kind of prayer. This approach can also be scientific if in the end we discover through direct experience what we thought to exist. Therefore you can use the terminology and methods of the religion of your heritage. The focus should be not on the ritual actions but on the direct connection to the Beyond.
+
 This path requires the same prerequisites as the internal path regarding the body, income, simplicity of life, relations with people but instead of withdrawal as the practice for expanding the perception, this is a path of discovering the Beyond in the world around.
+
+Although everything around is the Beyond interacting with you, do not interpret anything. The world is too complex. Over time connections among events will become evident by themselves but even then do not fall into thinking, just acknowledge your current flash of understanding and move on.
+
+During a day, allocate times to interact with the Beyond. The best times are in the morning before you start the day, in the evening when you feel that it’s the time to wrap up, before starting a new activity and after ending it. The interaction is as I described above: mentally turn towards the Beyond, physically bow to It, express gratitude for at least one event, ask to be with It.
+
 
 
 TO BE CONTINUED
