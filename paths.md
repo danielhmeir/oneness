@@ -135,6 +135,15 @@ Although everything around is the Beyond interacting with you, do not interpret 
 
 During a day, allocate times to interact with the Beyond. The best times are in the morning before you start the day, in the evening when you feel that it’s the time to wrap up, before starting a new activity and after ending it. The interaction is as I described above: mentally turn towards the Beyond, physically bow to It, express gratitude for at least one event, ask to be with It.
 
+Constant or intermittent being with the Beyond calms the mind because it requires focus and presence. It also calms the hearts and fills it with light. You start seeing the world as radiant, alive and permeated by the Divine, including yourself.
+
+This realization that there is no place empty of the Divine, including what you consider yourself leads to dissipation or a breakdown of the mental barrier of self and blissful merging with the Infinite. At this point you do not experience the Divine because you are One with It. Or, you experience Your interaction with Yourself through the garment of the world.
+
+And then, as described above, comes loneliness and your previous self steps out of the Unity in order to be with the Divine.
+
+This path is more suitable for everyday life because it does not require seclusion in order to meditate.
+
+But both paths should be practiced together. The external path during the day, the meditative path before and after the daily activities.
 
 
 TO BE CONTINUED
