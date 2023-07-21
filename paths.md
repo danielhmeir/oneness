@@ -146,5 +146,10 @@ This path is more suitable for everyday life because it does not require seclusi
 
 But both paths should be practiced together. The external path during the day, the meditative path before and after the daily activities.
 
+About psychedelics
+
+An experienced sailor uses a strong wind to his advantage, an inexperienced sailor is carried by the wind to unknown places. The same happens with psychedelics. If you are experienced in meditation and especially in the External Path, you can use the waves of energy released by psychedelics to take you where you need or to discover new peaks. If you are inexperienced and follow experiences caused by psychedelics, you may discover new layers of reality which are blissful or which are demonic. 
+Imagine there is a mountain range with peaks of different heights. First you learn to climb the lowest peak. Once you can climb it without effort, you can start climbing a higher peak. Psychedelics take you directly to the first peak to save you time and effort before climbing the second peak. But if you take psychedelics instead of learning to climb by yourself, you will need to keep taking them in increasing amounts and at some point you will ruin your health.
+Psychedelics are not needed at all. I am writing about them because they are becoming increasingly popular and available. And, if you happen to use them, keep in mind these analogies with sailing and climbing.
 
 TO BE CONTINUED
