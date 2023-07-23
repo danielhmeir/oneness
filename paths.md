@@ -152,4 +152,8 @@ An experienced sailor uses a strong wind to his advantage, an inexperienced sail
 Imagine there is a mountain range with peaks of different heights. First you learn to climb the lowest peak. Once you can climb it without effort, you can start climbing a higher peak. Psychedelics take you directly to the first peak to save you time and effort before climbing the second peak. But if you take psychedelics instead of learning to climb by yourself, you will need to keep taking them in increasing amounts and at some point you will ruin your health.
 Psychedelics are not needed at all. I am writing about them because they are becoming increasingly popular and available. And, if you happen to use them, keep in mind these analogies with sailing and climbing.
 
+Is this all in your head?
+
+Some experiences are not. You are not guaranteed to experience reality from a point outside of your body. But still, consistent meditation and/or the External Path will at least enhance your perception of the physical world, will increase your energy, clarity and self control.
+
 TO BE CONTINUED
