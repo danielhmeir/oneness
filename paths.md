@@ -122,6 +122,11 @@ Home
 After reaching the state of Love with the Infinite One, it feels like returning home. A peaceful and complete feeling that everything is in the past and already here, and there is no need to go anywhere. Everything is so simple. I wish I knew before leaving my beautiful island that after sailing around the globe I would return to it. But is it possible to experience this otherwise?
 It is also the point where the internal path, the path of meditation during which we withdraw inward to return to our innermost point merges with the external path because we discover the Infinite One in everything.
 
+Level of consciousness
+
+A wise old person (not any old person) knows so much more about life, people, the world than a most brilliant child. So a person who has successfully traveled all the way through this path and reached the ultimate Unity and then Love, has a level of consciousness an order of magnitude higher, so to speak, than a wisest and most brilliant thinker. It is impossible to describe this difference just as a most brilliant child is capable of understanding certain concepts at a certain age. At this level of consciousness you begin to understand the real meaning of holy books, the words and actions of greatest spiritual masters. They acted, spoke, wrote from a different level of consciousness and their words have multiple layers. Most people who study these texts try to understand them from their current level of consciousness, which is better than nothing, but without changing oneself, one will never see what they really mean.
+
+
 External path
 
 The external path is suitable for people who intuitively think that there is Something beyond our narrow perception of the physical world. 
