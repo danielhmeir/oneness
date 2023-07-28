@@ -161,9 +161,11 @@ Is this all in your head?
 
 Some experiences are not. You are not guaranteed to experience reality from a point outside of your body. But still, consistent meditation and/or the External Path will at least enhance your perception of the physical world, will increase your energy, clarity and self control.
 
-Structure and flow of energy in the body
+Raising the consciousness
 
-This part is not based on science but is a useful tool for advanced meditators who at least can retain inner tranquility, non-attachment and alertness long enough to start experiencing advanced perception of reality. It only works if you are kind. It is a tool for raising consciousness above the human level. To be successful you must already have experienced that it is possible to perceive more than in your default state of mind, and you already must have perceived that there is a wiser and more powerful reality both deeper in yourself and in the world, that the reality has layers of perception. This technique directs the energy of your body up the levels of consciousness. There are multiple models that describe energy in the body. I will describe only what is needed to raise the mind. I am writing this in the very end because this technique requires a healthy body and stamina, and because this technique is exhausting.
+As described, there are 2 methods of attaining Unity: Meditation and the External Path. Attaining Unity is both preceded and followed by broader experience of reality which are: enlightenment, out of body experience, seeing the Divine presence, lucid dreaming which I am not going to discuss, and lastly, there is the raising of consciousness that I will describe now.
+
+The goal of this technique is to raise the consciousness above the human level. It works for advanced meditators who at least can retain inner tranquility, non-attachment and alertness long enough to start experiencing advanced perception of reality. It only works if you are kind. To be successful you must already have experienced that it is possible to perceive more than in your default state of mind, and you already must have perceived that there is a wiser and more powerful reality both deeper in yourself and in the world, that the reality has layers of perception. This technique directs the energy of your body up the levels of consciousness.
 
 This technique, and, actually, everything else, works best if you accumulate sexual energy more than you spend it.
 
@@ -171,12 +173,10 @@ First you must have a burning longing to reunite with the Beloved Above and you 
 
 This should be performed in nature in a mild weather where no one sees or hears you because from the side this looks epileptic. Sit cross legged, straight back, open shoulders, fingers crossed, thumbs touching each other and pointing up, tip of the tongue above the upper teeth, eyes looking beyond the sky. Tip of the head, thumbs, tongue and eyes all pointing up. When you breathe in, breathe in from above, as if you are crawling out of a tunnel, when you breathe out, breathe out as if you are breathing out upward and with a sound. Intense breathing may cause both sensation and vision of white light going through your spine between the bottom of the spine and tip of the head. Now when you breathe in, breathe in the fragrance of air and fill your heart with enjoyment and light. When you breathe out, breathe out love. The white column of light along your spine will open like a flower upwards above the solar plexus and below the heart. If you saw your heart shining with green light before, now it will shine sky blue. It is an experience that is hard to describe logically because perceptually your body is sitting on the ground but your mind is in the sky. At this point you start to perceive the energy structure of your body and its layers, and you discover a new layer of reality, and you rise to a qualitatively higher level of consciousness. It is impossible to explain what it means to be on a higher level of consciousness. I wrote about this briefly above.
 
-To continue, keep looking up beyond the sky and follow the sounds of nature, especially birds. Beyond this point it is impossible to describe the trip reasonably. You will pass through the light into Union.
+To continue, keep looking up beyond the sky and follow the sounds of nature, especially birds. Beyond this point it is impossible to describe the trip reasonably. You will pass through the light into Union. I am using the word Union instead of Unity because in this technique your spine serves as a conduit for a cosmic comunion and you are riding waves of ecstasy.
 
-At some point the Union will start to weaken. Tilt the head a bit up, open the palms up, relax and enjoy.
+At some point the Union will start to weaken. Tilt the head a bit up, open the palms up, relax and enjoy the bliss.
 
 Although the intensity will calm down, the new perception of yourself and the reality will persist.
 
 I have omitted some details that will become evident by themselves if you are ready for this technique.
-
-Hope this can helpful.
