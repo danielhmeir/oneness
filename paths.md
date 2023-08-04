@@ -4,7 +4,7 @@ I am giving you tools to expand your perception of reality.
 
 We perceive the external world through the five senses. And, we perceive our body, emotions and mental activity. The number of these types of inputs and their ranges are limited.  And the mind that processes them is also limited in bandwidth and abilities. To extend our perception and processing, we build technological sensors and computers. But since the dawn of humanity, long before modern technology, people have been trying to go beyond the physical limitations. I am going to explain how. The information is not new but I am going to present it in a concise and practical way.
 
-The question is why. For the same reasons why some people go into physics, neuroscience, psychology and other methods of expanding our understanding of reality and the mind. Some people research reality not through external sensors, computers and mental analysis of the data but through changing their physical body and mind thus expanding their perception.
+The question is why. For the same reasons why some people go into physics, neuroscience, psychology and other methods of expanding our understanding of reality and the mind. Some people research reality not through external sensors, computers and mental analysis of the data but through changing their physical body and mind thus expanding their perception. Some information in this text is out of the scope of your present experience, knowledge and logic not because it is irrational and non-scientific but because it is beyond your present experience. This text is about practice to expand the limits of your current perception. But even when you begin to succeed in expanding your perception, your brain will automatically try to rationalize the new experience and fit it into the existing knowledge.
 
 Through special diet and training it is possible to expand the range of the senses. It is also possible to awaken dormant senses. But still they are filters over the real reality. What if we could drop the filters…
 
@@ -19,6 +19,8 @@ The question is why step out of all experience. Having been born on a small isla
 There are 2 ways for Self to become free of the superficial disturbances and to become aware of itself. One is the way of withdrawal from everything, i.e. meditation. The other is the way of unity with the Ultimate Reality. The way of meditation is simple and scientific because it requires to withdraw the attachment to one’s body, feelings, thoughts etc. The way of unity requires one to accept the idea that there is Something beyond everything and to train oneself to be in a constant connection with It. This is the way of belief and religion. They lead to the same result. They should be practiced together. But most people have an inclination to one or another.
 
 I will start with meditation because this method is simple to rationalize and it gives perceivable results as you progress.
+
+Path of Meditation
 
 Stir water and sand in a cup, put the cup on a table. This is you in meditation. The longer, the clearer the mind, the less affected You are by the disturbances, the more You see the distinction between what is superficial to You and the innermost You. 
 
@@ -64,7 +66,7 @@ When you realize that you are here not only through your choices, gratitude shou
 
 How to meditate
 
-As described above, prepare a place. Stretch well, especially the spine and legs but do not overstretch. One goal of stretching is to energize the body. Now let us activate the nerve system. Breathe slowly with the heart. When you breathe in, the heart opens and fills with all the help and kindness that you’ve ever received. When you breathe out, breathe out your gratitude. Although it is just a mental exercise, you do experience these feelings in the heart and your nerve system becomes activated in a positive way.
+As described above, prepare a place. Stretch well, especially the spine and legs but do not overstretch. One goal of stretching is to energize the body. Then activate the nerve system. Breathe slowly with the heart. When you breathe in, the heart opens and fills with all the help and kindness that you’ve ever received. When you breathe out, breathe out your gratitude. Although it is just a mental exercise, you do experience these feelings in the heart and your nerve system becomes activated in a positive way.
 Now assume a symmetrical upright position. Specifics do not matter. Put the tip of the tongue above the upper teeth. Breathe out and relax. Do not get involved. There may be external distractions such as wind, smell, sound, movement or internal distractions such as breathing, pleasant feelings, thoughts. Ignore. Do not let your attention shift around but do not focus on anything particular. Relax the internal “muscle” of attention. 
 The goal is to stay in this position without effort, ignoring everything, not focusing on anything. At first it will require physical effort, then internal effort. There will be numerous distractions. Discomfort, tension, external distractions, flood of thoughts. Just sit this all out. At some point the rising tide of disturbances will simply vanish. You will feel the quiet after a storm. Over time you will be able to sit relaxed, happy, with a clear mind, observing. 
 A clear mind is a mind without thoughts. There are several types of thoughts: memories, thoughts triggered by the current experience, imagination. There is another type of thoughts: meta thoughts. They are a reflection of the inner Non-Self on the mind. They describe Non-Self to itself. When the mind is clear, there are also no meta thoughts. This to some extent disconnects the inner Non-Self from the machine it is sitting in. It is trippy and liberating and this can lead to 3 types of experiences that I will describe below.
@@ -89,7 +91,6 @@ One by-product of the enlightenment is that you start seeing the light of happin
 The range of perception may increase. Just as a radio is tuned to receive a specific frequency, so we are tuned to perceive this world. Just as you can shift a radio up and down the frequency range, so we can shift and perceive a broader range of reality. The shift of perception can be horizontal, i.e. towards minds like ours but “hanging out” in adjacent worlds. Worlds are like rooms on the same floor with doors connecting them. This happens naturally in lucid dreams, like the one described in Alice in Wonderland. It is also possible to move down and up. Our mind can be dominated by the physical, social, emotional, logical, creative and spiritual levels. When the tuning of the perception goes below our world, it’s no fun. I am not going to describe this because I am already in the area of pseudoscience unless you experience what I am describing. But perception can also go up. When it goes up, you find yourself among beings more mature and wiser than us. There is a technique that I am not going to describe because even if you succeed, it is only because you were allowed. When you are ready, the technique will happen naturally. Later I will describe the structure of a human beyond the physical and this will help once you are ready. In any case, when the range of perception increases, just acknowledge and do not be lured.
 
 Dormant senses and abilities may intensify and awake. Again, no need to list them because they are by-products and not the goal.
-
 
 Experience is the distraction
 
@@ -120,14 +121,13 @@ Also, in this state, the only possible way to view all beings is through compass
 Home
 
 After reaching the state of Love with the Infinite One, it feels like returning home. A peaceful and complete feeling that everything is in the past and already here, and there is no need to go anywhere. Everything is so simple. I wish I knew before leaving my beautiful island that after sailing around the globe I would return to it. But is it possible to experience this otherwise?
-It is also the point where the internal path, the path of meditation during which we withdraw inward to return to our innermost point merges with the external path because we discover the Infinite One in everything.
+It is also the point where the internal path, the path of meditation, during which we withdraw inward to return to our innermost point, merges with the external path because we discover the Infinite One in everything.
 
 Level of consciousness
 
 A wise old person (not any old person) knows so much more about life, people, the world than a most brilliant child. So a person who has successfully traveled all the way through this path and reached the ultimate Unity and then Love, has a level of consciousness an order of magnitude higher, so to speak, than a wisest and most brilliant thinker. It is impossible to describe this difference just as a most brilliant child is capable of understanding certain concepts at a certain age. At this level of consciousness you begin to understand the real meaning of holy books, the words and actions of greatest spiritual masters. They acted, spoke, wrote from a different level of consciousness and their words have multiple layers. Most people who study these texts try to understand them from their current level of consciousness, which is better than nothing, but without changing oneself, one will never see what they really mean.
 
-
-External path
+External Path
 
 The external path is suitable for people who intuitively think that there is Something beyond our narrow perception of the physical world. 
 
@@ -143,15 +143,17 @@ During a day, allocate times to interact with the Beyond. The best times are in 
 
 Constant or intermittent being with the Beyond calms the mind because it requires focus and presence. It also calms the hearts and fills it with light. You start seeing the world as radiant, alive and permeated by the Divine, including yourself.
 
+I use the word Divine because once you experience the wise and loving radiance permeating the world, there is no better word.
+
 This realization that there is no place empty of the Divine, including what you consider yourself leads to dissipation or a breakdown of the mental barrier of self and blissful merging with the Infinite. At this point you do not experience the Divine because you are One with It. Or, you experience Your interaction with Yourself through the garment of the world.
 
-And then, as described above, comes loneliness and your previous self steps out of the Unity in order to be with the Divine.
+And then, as described above, comes loneliness and your previous self steps out of the Unity in order to be with the Divine in a state of intimacy and peace.
 
 This path is more suitable for everyday life because it does not require seclusion in order to meditate.
 
 But both paths should be practiced together. The external path during the day, the meditative path before and after the daily activities.
 
-About psychedelics
+Psychedelics
 
 An experienced sailor uses a strong wind to his advantage, an inexperienced sailor is carried by the wind to unknown places. The same happens with psychedelics. If you are experienced in meditation and especially in the External Path, you can use the waves of energy released by psychedelics to take you where you need or to discover new peaks. If you are inexperienced and follow experiences caused by psychedelics, you may discover new layers of reality which are blissful or which are demonic. 
 Imagine there is a mountain range with peaks of different heights. First you learn to climb the lowest peak. Once you can climb it without effort, you can start climbing a higher peak. Psychedelics take you directly to the first peak to save you time and effort before climbing the second peak. But if you take psychedelics instead of learning to climb by yourself, you will need to keep taking them in increasing amounts and at some point you will ruin your health.
@@ -173,10 +175,24 @@ First you must have a burning longing to reunite with the Beloved Above and you 
 
 This should be performed in nature in a mild weather where no one sees or hears you because from the side this looks epileptic. Sit cross legged, straight back, open shoulders, fingers crossed, thumbs touching each other and pointing up, tip of the tongue above the upper teeth, eyes looking beyond the sky. Tip of the head, thumbs, tongue and eyes all pointing up. When you breathe in, breathe in from above, as if you are crawling out of a tunnel, when you breathe out, breathe out as if you are breathing out upward and with a sound. Intense breathing may cause both sensation and vision of white light going through your spine between the bottom of the spine and tip of the head. Now when you breathe in, breathe in the fragrance of air and fill your heart with enjoyment and light. When you breathe out, breathe out love. The white column of light along your spine will open like a flower upwards above the solar plexus and below the heart. If you saw your heart shining with green light before, now it will shine sky blue. It is an experience that is hard to describe logically because perceptually your body is sitting on the ground but your mind is in the sky. At this point you start to perceive the energy structure of your body and its layers, and you discover a new layer of reality, and you rise to a qualitatively higher level of consciousness. It is impossible to explain what it means to be on a higher level of consciousness. I wrote about this briefly above.
 
-To continue, keep looking up beyond the sky and follow the sounds of nature, especially birds. Beyond this point it is impossible to describe the trip reasonably. You will pass through the light into Union. I am using the word Union instead of Unity because in this technique your spine serves as a conduit for a cosmic comunion and you are riding waves of ecstasy.
+To continue, keep looking up beyond the sky and follow the sounds of nature, especially birds. Beyond this point it is impossible to describe the trip reasonably. You will pass through the light into Union. I am using the word Union instead of Unity because in this technique your spine serves as a conduit for a cosmic comunion and you are riding up the waves of ecstasy.
 
 At some point the Union will start to weaken. Tilt the head a bit up, open the palms up, relax and enjoy the bliss.
 
 Although the intensity will calm down, the new perception of yourself and the reality will persist.
 
 I have omitted some details that will become evident by themselves if you are ready for this technique.
+
+Why am I sharing this?
+
+The ultimate state of Unity is like awakening from a dream back to our real self. Giving you clues to wake up is a natural act of caring.
+
+Names
+
+In this text I have used multiple words to describe the ultimate state of Unity. In the context of meditation I used Self, Non-Self, Infinite One. In the context of the External Path I used Beyond, Divine, One, Beloved Above. All these terms mean the same in reality.
+
+Summary
+
+For clarity I will list the steps of each path. Efficient income. Minimal spending. Caring for colleagues, neighbors, family. Healthy body. Naturally happy mood. Simple and calm life. Expressing gratitude. Non-attachment, selflessness, non-egoism. Meditation. Being with the Divine. Caring for others, including helping them return to Unity.
+
+Enjoy the trip
