@@ -1,7 +1,10 @@
-
 About
 
-This text is for those who would like to expand their perception of reality. It is intentionally brief.
+This text is for those who would like to expand their perception of reality. 
+
+It is also for those who seek a connection with God, deeper understanding of Torah and deeper understanding of the mechanism and outcomes of the commandments.
+
+The text is intentionally brief.
 
 Intro
 
@@ -15,7 +18,9 @@ One is the way of detachment from all experience external to the innermost perce
 
 This way is suitable for everyone. It is simple to understand and it is scientific because it is based on observation and the results are proportionate to persistence.
 
-The other way is the way of directing ourselves at what is beyond the perceived reality. This way is suitable for people who intuitively think that there is something beyond what we currently perceive. This is the way of devotion which is usually based on a culture of spiritual teaching dedicated to the ultimate reality, also known as God. At the end of this path, the seeker merges with the ultimate reality and finds out who he is, what the ultimate reality is and what the perceived reality is. If according to your beliefs it is impossible then don’t let reality deceive you.
+Those who observe the Commandments will return to oneness with God. As you withdraw yourself from the perception, you let God in and at the same time you return to oneness with God. But if according to your beliefs it is impossible then don’t let reality deceive you.
+
+The other way is the way of directing ourselves at what is beyond the perceived reality. This way is suitable for people who intuitively think that there is something beyond what we currently perceive. This is the way of devotion which is usually based on a culture of spiritual teaching dedicated to the ultimate reality, also known as God. At the end of this path, the seeker merges with the ultimate reality and finds out who he is, what the ultimate reality is and what the perceived reality is.
 
 Both ways can and should be practiced together but each person will find one of them more natural.
 
@@ -31,9 +36,13 @@ The state of being your own essence is the state of being the source of creativi
 
 Although in this state you do not need anything, this is a state of loneliness. Then you step out of Oneness. You are still united with the One but not by being in a state of oneness but being in a connection of love with the One. Then the only natural way to interact with reality is by giving, helping, caring etc.
 
+At this point you also begin to understand the deeper layers of meaning of holy texts and the mechanism of the Commandments.
+
 How to meditate
 
 The best time for meditation is the morning after a good sleep, pleasant stretching and a light healthy breakfast.
+
+Find a slot in your morning routine that works for you.
 
 The best place for meditation is a quiet, safe and comfortable place in nature.
 
@@ -49,7 +58,7 @@ This state is also a state of being the creative, loving, enlightening source of
 
 This is a short description of meditation. To be efficient, the body, the nerve system, the mind require thorough preparation. I will return to this.
 
-Below I describe the path of devotion that leads to Oneness with the Beyond beyond the veil of the physical world. Both practices compliment each other. While this meditation of withdrawal inward requires allocation of time away from the daily needs and goals, such as earning income, taking care of the family etc. , the practice of devotion can be performed throughout the day.
+Below I describe the path of devotion that leads to Oneness with the Beyond beyond the veil of the physical world. Both practices compliment each other. While this meditation of withdrawal inward requires allocation of time away from the daily needs and goals, such as the study of Torah, earning income, taking care of the family etc., the practice of devotion can be performed throughout the day.
 
 Devotion / External Path
 
@@ -57,17 +66,23 @@ This path is natural for those who have an intuitive idea that there is Someone 
 
 One way to return to one’s essence is by withdrawal inward as described above. The path of devotion is by being with Beyond throughout the day in a most personal, respectful, humble, selfless and intimate way. Therefore instead of using the impersonal Beyond, I’ll use God.
 
+This path is natural for those who observe the Commandments.
+
 Being with God, being humble and grateful, dedicating good actions and their outcomes to God over time leads to disappearance of selfishness and to a loving, happy, blissful union with God’s presence. What this union is is impossible to describe but it’s like being the source and permeating essence of everything. At the same time being in union with God’s presence leaves no one to say “you” to. Therefore it is natural to step back out of this union in order to be again in a loving and devoted connection with God, but this time with the taste of experience of God’s presence. Being with God means that at every moment you are in the presence of God and you can say “we” or “you” to God.
 
 If you crave God, you are building up your self separate from God, if you selflessly serve and love God, you are removing your separate self.
 
 If you serve God but you are not respectful and caring towards beings around you for their sake, your qualities separate you from God. Good actions mentioned above are actions towards other beings for their sake.
 
-How to practice being with God, what good actions are and much more has been laid out for us throughout centuries by prophets and holy people. As you study, practice and peel off layers separating you from God, you approach understanding the essence of these topics.
+How to practice being with God, what good actions are and much more has been laid out for us throughout ages by prophets and holy people. As you study, practice and peel off layers separating you from God, you approach understanding the essence of these topics.
 
 In addition to being with God throughout the day, devotion can be practiced before and after meditation. After you acquire a position for meditation, breathe slowly and calmly with your heart. Breathe in love towards God, breathe out love and gratitude towards God. Over time this will lead to beautiful experiences, especially when you perform this in nature, just remember that your goal is love towards God and not the beautiful experiences. In nature this meditation of devotion has additional elements that will reveal themselves to you with practice.
 
-Meditation of detachment is for atheists who through self exploration come to the same Union. The path of devotion is more encompassing and beautiful. 
+It is also a good practice right before and after performing a Commandment, saying a blessing, praying, studying Torah as it reconnects us with God and allows us to act with happiness, gratitude and love.
+
+And, it is good to do it throughout the day between activities or as a break.
+
+Meditation of detachment is suitable for anyone whereas devotion is suitable for believers but devotion is more encompassing and beautiful. 
 
 Psychedelics
 
@@ -76,16 +91,19 @@ I am mentioning psychedelics because they are becoming increasingly popular and 
 
 Prerequisites
 
-Whatever is the outcome of Union is also its prerequisite because you will not be able to get into Union if you do not match its nature. We must unleash our nature of proactively acting for the benefit of other beings for their sake, be grateful for everything, accept that everything is for the ultimate best, be humble before God. This and much more has been laid out for us throughout centuries by prophets and holy people.
+Whatever is the outcome of Union is also its prerequisite because you will not be able to get into Union if you do not match the expression of its nature. We must unleash our nature of proactively acting for the benefit of other beings for their sake, be grateful for everything, accept that everything is for the ultimate best, be humble before God. This and much more has been laid out for us throughout ages by prophets and holy people.
 
 Practicing only the path of meditation has pitfalls because it increases sensitivity and opens up dormant abilities. A person with selfish feelings and desires, with incomplete self control, with a silly mind will strengthen the selfish desires which will impede progress. 
 
+Selfless, happy, grateful, loving observance of the Commandments and study of Torah structures the body, heart and mind in the most efficient way for the return of the innermost you to Union and being able to live a fully Divine life in the physical world. Optimized body, heart and mind allow us to experience all layers of reality, to tunnel, direct and ride tremendous amounts of energy, to open up dormant abilities. The study of Torah also causes us to think about important questions such as how to balance compassion and justice, how to go through hardships, what is genuine altruism etc.
+
 States of mind
 
-Oneness is the ultimate state of mind. In addition, there is a practice of lucid dreaming that expands our understanding of reality. There is out of body experience that can happen during a meditation or sleep, if it happens, stay calm, you’ll get back. It can also be trained but there is no need.
+Oneness is the ultimate state of being. In addition, there is a practice of lucid dreaming that expands our understanding of reality. There is out of body experience that can happen during a meditation or sleep, if it happens, stay calm, you’ll get back. It can also be trained but there is no need.
 
 Approaching Union is accompanied by increase in energy, sensitivity, dormant abilities and depth/level of understanding of reality.
 
----
+There is so much to say about the layers of reality and tremendous energies therein that it is better just to practice.
 
-For you, my friend!
+
+You and I are One!
