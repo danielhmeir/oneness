@@ -18,7 +18,7 @@ One is the way of detachment from all experience external to the innermost perce
 
 This way is suitable for everyone. It is simple to understand and it is scientific because it is based on observation and the results are proportionate to persistence.
 
-Those who observe the Commandments will return to oneness with God. As you withdraw yourself from the perception, you let God in and at the same time you return to oneness with God. But if according to your beliefs it is impossible then don’t let reality deceive you.
+Those who observe the Commandments will return to oneness with God. As you withdraw yourself from the perception, you let God in and at the same time you return to oneness with God. But if according to your beliefs this is impossible then don’t let reality deceive you.
 
 The other way is the way of directing ourselves at what is beyond the perceived reality. This way is suitable for people who intuitively think that there is something beyond what we currently perceive. This is the way of devotion which is usually based on a culture of spiritual teaching dedicated to the ultimate reality, also known as God. At the end of this path, the seeker merges with the ultimate reality and finds out who he is, what the ultimate reality is and what the perceived reality is.
 
@@ -99,11 +99,13 @@ Selfless, happy, grateful, loving observance of the Commandments and study of To
 
 States of mind
 
-Oneness is the ultimate state of being. In addition, there is a practice of lucid dreaming that expands our understanding of reality. There is out of body experience that can happen during a meditation or sleep, if it happens, stay calm, you’ll get back. It can also be trained but there is no need.
+In addition to these 2 paths leading back to Oneness, there is a practice of lucid dreaming that expands our understanding of reality. 
 
-Approaching Union is accompanied by increase in energy, sensitivity, dormant abilities and depth/level of understanding of reality.
+Out of body experience is another phenomenon that can happen during a meditation or sleep, if it happens, stay calm, you’ll get back. It can also be trained but there is no need.
 
-There is so much to say about the layers of reality and tremendous energies therein that it is better just to practice.
+Approaching Oneness is accompanied by increase in energy, sensitivity, dormant abilities and depth/level of understanding of reality.
+
+There is so much to say about the layers of reality and tremendous energies therein that it is better just to practice. One thing worth mentioning is that accumulation of reproductive energy serves as a necessary fuel for the rise of the awareness up the levels of consciousness all the way into Oneness. While we are on the topic, sexual union between a man and a woman during her purity creates a tunnel for unification of all layers of creation and a tremendous wave of energy passing through them can take them up into Oneness. A single person can also serve as such a tunnel. Moving up the layers of reality and consciousness is also the experience of birth on each level. 
 
 
 You and I are One!
