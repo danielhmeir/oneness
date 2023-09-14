@@ -2,9 +2,9 @@ About
 
 This text is for those who would like to expand their perception of reality. 
 
-It is also for those who seek a connection with God, deeper understanding of Torah and deeper understanding of the mechanism and outcomes of the commandments.
+It is also for those who seek a direct connection with God, experience of the content of Torah and deeper understanding of the mechanism and outcomes of the commandments.
 
-The text is intentionally brief.
+The text is intentionally brief because when you do not practice, a text does not matter, when you do practice, a text is not needed.
 
 Intro
 
@@ -58,7 +58,7 @@ This state is also a state of being the creative, loving, enlightening source of
 
 This is a short description of meditation. To be efficient, the body, the nerve system, the mind require thorough preparation. I will return to this.
 
-Below I describe the path of devotion that leads to Oneness with the Beyond beyond the veil of the physical world. Both practices compliment each other. While this meditation of withdrawal inward requires allocation of time away from the daily needs and goals, such as the study of Torah, earning income, taking care of the family etc., the practice of devotion can be performed throughout the day.
+Below I describe the path of devotion that leads to Oneness with the Beyond beyond the veil of the physical world. Both practices compliment each other. While this meditation of withdrawal inward requires allocation of time away from the daily needs and goals, such as the study of Torah, taking care of the family, earning income etc., the practice of devotion can be performed throughout the day.
 
 Devotion / External Path
 
@@ -66,9 +66,9 @@ This path is natural for those who have an intuitive idea that there is Someone 
 
 One way to return to one’s essence is by withdrawal inward as described above. The path of devotion is by being with Beyond throughout the day in a most personal, respectful, humble, selfless and intimate way. Therefore instead of using the impersonal Beyond, I’ll use God.
 
-This path is natural for those who observe the Commandments.
+This path is natural for those who observe the Commandments. It was described in the Guide for the Perplexed starting with 3:51.
 
-Being with God, being humble and grateful, dedicating good actions and their outcomes to God over time leads to disappearance of selfishness and to a loving, happy, blissful union with God’s presence. What this union is is impossible to describe but it’s like being the source and permeating essence of everything. At the same time being in union with God’s presence leaves no one to say “you” to. Therefore it is natural to step back out of this union in order to be again in a loving and devoted connection with God, but this time with the taste of experience of God’s presence. Being with God means that at every moment you are in the presence of God and you can say “we” or “you” to God.
+Being with God, being humble and grateful, dedicating good actions and their outcomes to God over time leads to disappearance of selfishness and to a loving, happy, blissful union with God’s presence. What this union is is impossible to describe but it’s like being the source and permeating essence of everything. At the same, time being in union with God’s presence leaves no one to say “you” to. Therefore it is natural to step back out of this union in order to be again in a loving and devoted connection with God, but this time with the taste of experience of God’s presence. Being with God means that at every moment you are in the presence of God and you can say “we” or “you” to God.
 
 If you crave God, you are building up your self separate from God, if you selflessly serve and love God, you are removing your separate self.
 
@@ -96,6 +96,10 @@ Whatever is the outcome of Union is also its prerequisite because you will not b
 Practicing only the path of meditation has pitfalls because it increases sensitivity and opens up dormant abilities. A person with selfish feelings and desires, with incomplete self control, with a silly mind will strengthen the selfish desires which will impede progress. 
 
 Selfless, happy, grateful, loving observance of the Commandments and study of Torah structures the body, heart and mind in the most efficient way for the return of the innermost you to Union and being able to live a fully Divine life in the physical world. Optimized body, heart and mind allow us to experience all layers of reality, to tunnel, direct and ride tremendous amounts of energy, to open up dormant abilities. The study of Torah also causes us to think about important questions such as how to balance compassion and justice, how to go through hardships, what is genuine altruism etc.
+
+Group
+
+Meditating in a group creates resonance that helps all devoted participants go deeper/higher than when alone.
 
 States of mind
 
