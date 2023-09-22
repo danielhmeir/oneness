@@ -48,7 +48,7 @@ The best place for meditation is a quiet, safe and comfortable place in nature.
 
 Before meditating, slowly stretch your spine and each joint of your legs in all directions until your muscles become warm and breathing intensifies, but do not overstretch.
 
-You can kneel or sit with the back upright but relaxed. Put your hands in a comfortable relaxed position. Put the tip of your tongue above the upper teeth. Close your eyes. Relax your breathing, your tongue and your eyes. There are smells, sounds, breathing, thoughts but you are going to sit and not get involved in any of them. If you feel discomfort, relax deeper but do not ignore signals related to safety and health. 
+You can kneel or sit with the back upright but relaxed. Put your hands in a comfortable relaxed position. Put the tip of your tongue above the upper teeth. Close your eyes. Relax your breathing, your tongue and your eyes. There are smells, sounds, breathing, thoughts but you are going to sit and not get involved in any of them. Any experience is just a ripple on the surface of your ocean. If you feel discomfort, relax deeper but do not ignore signals related to safety and health. 
 
 Meditation is a cup of water mixed with sand. The longer it stays still, the clearer the water becomes. With time, you’ll be able to sit longer. The longer you sit still, relaxed, not involved in any experience, the clearer your perception will become but keep in mind that any experience is external to you, the innermost perceiver, no matter how blissful and divine it is. With time, stillness and detachment will bring you to detachment from everything, then loss of individuality, then unification with the Infinite One present in everything. This is the point of awakening and enlightenment.
 
@@ -68,7 +68,7 @@ One way to return to one’s essence is by withdrawal inward as described above.
 
 This path is natural for those who observe the Commandments. It was described in the Guide for the Perplexed starting with 3:51.
 
-Being with God, being humble and grateful, dedicating good actions and their outcomes to God over time leads to disappearance of selfishness and to a loving, happy, blissful union with God’s presence. What this union is is impossible to describe but it’s like being the source and permeating essence of everything. At the same, time being in union with God’s presence leaves no one to say “you” to. Therefore it is natural to step back out of this union in order to be again in a loving and devoted connection with God, but this time with the taste of experience of God’s presence. Being with God means that at every moment you are in the presence of God and you can say “we” or “you” to God.
+Being with God, being humble and grateful, dedicating good actions and their outcomes to God over time leads to disappearance of selfishness and to a loving, happy, blissful union with God’s presence. What this union is is impossible to describe but it’s like being the source and permeating essence of everything. At the same time, being in union with God’s presence leaves no one to say “you” to. Therefore it is natural to step back out of this union in order to be again in a loving and devoted connection with God, but this time with the taste of experience of God’s presence. Being with God means that at every moment you are in the presence of God and you can say “we” or “you” to God.
 
 If you crave God, you are building up your self separate from God, if you selflessly serve and love God, you are removing your separate self.
 
@@ -77,6 +77,8 @@ If you serve God but you are not respectful and caring towards beings around you
 How to practice being with God, what good actions are and much more has been laid out for us throughout ages by prophets and holy people. As you study, practice and peel off layers separating you from God, you approach understanding the essence of these topics.
 
 In addition to being with God throughout the day, devotion can be practiced before and after meditation. After you acquire a position for meditation, breathe slowly and calmly with your heart. Breathe in love towards God, breathe out love and gratitude towards God. Over time this will lead to beautiful experiences, especially when you perform this in nature, just remember that your goal is love towards God and not the beautiful experiences. In nature this meditation of devotion has additional elements that will reveal themselves to you with practice.
+
+Another practice is to stop and give space to God and just observe. The moment you step in, He will give space to you. A dance.
 
 It is also a good practice right before and after performing a Commandment, saying a blessing, praying, studying Torah as it reconnects us with God and allows us to act with happiness, gratitude and love.
 
@@ -109,7 +111,6 @@ Out of body experience is another phenomenon that can happen during a meditation
 
 Approaching Oneness is accompanied by increase in energy, sensitivity, dormant abilities and depth/level of understanding of reality.
 
-There is so much to say about the layers of reality and tremendous energies therein that it is better just to practice. One thing worth mentioning is that accumulation of reproductive energy serves as a necessary fuel for the rise of the awareness up the levels of consciousness all the way into Oneness. While we are on the topic, sexual union between a man and a woman during her purity creates a tunnel for unification of all layers of creation and a tremendous wave of energy passing through them can take them up into Oneness. A single person can also serve as such a tunnel. Moving up the layers of reality and consciousness is also the experience of birth on each level. 
-
+There is so much to say about the layers of reality and tremendous energies therein that it is better just to practice. One thing worth mentioning is that accumulation of reproductive energy serves as a necessary fuel for the rise of the awareness up the levels of consciousness all the way into Oneness. While we are on the topic, sexual union between a man and a woman during her purity creates a tunnel for unification of all layers of creation and a tremendous wave of energy passing through them can take them up into Oneness. A single person can also serve as such a tunnel. Moving up the layers of reality and consciousness is also the experience of birth on each level.
 
 You and I are One!
