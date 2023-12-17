@@ -80,6 +80,8 @@ In addition to being with God throughout the day, devotion can be practiced befo
 
 Another practice is to stop and give space to God and just observe. The moment you step in, He will give space to you. A dance.
 
+A deeper practice is to keep in mind that the moment you turn to God you assume that you exist…
+
 It is also a good practice right before and after performing a Commandment, saying a blessing, praying, studying Torah as it reconnects us with God and allows us to act with happiness, gratitude and love.
 
 And, it is good to do it throughout the day between activities or as a break.
