@@ -52,6 +52,10 @@ Lucid dreaming is an experience that although takes place in dreams shows us add
 - [Meditations](https://upload.wikimedia.org/wikipedia/commons/e/ed/Meditations_of_the_Emperor_Marcus_Antoninus_-_Volume_1_-_Farquharson_1944.pdf) by [Marcus Aurelius](https://en.wikipedia.org/wiki/Marcus_Aurelius) will not teach you any meditation techniques but I find it useful for a mindset proper for deeper practice.
 - [Becoming Supernatural](https://www.amazon.com/Becoming-Supernatural-Common-People-Uncommon/dp/1401953115/) by Joe Dispanza is good for the mindset. Just keep in mind that when he uses scientific terms like _quantum_, he is just trying to sound credible but purely scientifically this is nonesense. Still the content is useful.
 
+## Psychology
+
+- [The Map of Consciousness](https://www.amazon.com/dp/1401959644?psc=1&ref=ppx_yo2ov_dt_b_product_details) by David Hawkins explains the levels of human consciousness. It's a must for everyone.
+
 ## Transurfing
 
 - Transurfing of Reality is a teaching by a Russian mystic Vadim Zeland. I really doubt that there is a readable trabnslation. 
