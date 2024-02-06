@@ -2,7 +2,7 @@ About
 
 This text is for those who would like to expand their perception of reality. 
 
-It is also for those who seek a direct connection with God, experience of the content of Torah and deeper understanding of the mechanism and outcomes of the commandments.
+It is also for those who seek to vanish before God in order to serve him with absolute dedication. This vanishing leads to the expansion of perception of reality including the perception of Torah and its commandments as they are beyond mental constructs.
 
 The text is intentionally brief because when you do not practice, a text does not matter, when you do practice, a text is not needed.
 
