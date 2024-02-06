@@ -22,6 +22,8 @@ Those who observe the Commandments will return to oneness with God. As you withd
 
 The other way is the way of directing ourselves at what is beyond the perceived reality. This way is suitable for people who intuitively think that there is something beyond what we currently perceive. This is the way of devotion which is usually based on a culture of spiritual teaching dedicated to the ultimate reality, also known as God. At the end of this path, the seeker merges with the ultimate reality and finds out who he is, what the ultimate reality is and what the perceived reality is.
 
+When you turn to God in a prayer or a blessing, when you observe a commandment for God, when you dedicate your actions to God or at least do them together, you vanish before God and thus discover the essence of reality and of your deepest “self”.
+
 Both ways can and should be practiced together but each person will find one of them more natural.
 
 I will briefly explain each of them, the final result, how to live with it and how to combine both ways.
