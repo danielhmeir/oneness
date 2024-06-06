@@ -69,3 +69,5 @@ If you like one of the books and would like to follow it, it is wise to re-read 
 Learning a language is doable if you allocate at least 20 minutes daily. 
 I'd even say that if you think you won't be able to learn a language, you are not going to expand your perception beyond the current limitations.
 
+[My take on this topic](./paths.md)
+
