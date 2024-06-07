@@ -11,4 +11,6 @@ During meditation the spine should be straight. When you lie down, the vertebrae
 
 Immersion in experiences is a cause of suffering. When you are detached, you see a bigger picture and can make better choices.
 
+Is it better to follow a spiritual system or explore? A spiritual tradition offers you experience and wisdom of generations of spiritual masters. A few traditions have been transmitted and developed for thousands of years. But without being an explorer you won’t find much.
+
 to continue…
