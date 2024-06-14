@@ -9,6 +9,11 @@ Then we talked about various related topics.
 
 During meditation the spine should be straight. When you lie down, the vertebrae eventually sink down. When you stand or kneel, you cannot fully disconnect. Sitting cross legged is the most stable position. It also pushes the spine up.
 
+Spiritual traditions describe the ultimate state of consciousness. In Judaism it is bittul - cancellation of self, in Islam it is fana’ - dissolution of self, in India it is mukti - liberation - and related terms depending on a specific tradition etc. Are they all the same? At the essence a human is the Infinite One. But the present awareness of most humans is immersed in the external stimuli. As you withdraw yourself from being distracted by experiences, you approach your essence and in parallel you may become overflowing with light and bliss and you may experience the rise of consciousness.
+When your spine is healthy and stretched and straight, when you are relaxed and calm, you may begin to feel weightless and shining and blissful and much more. You may also begin to experience more of the reality including flow of energy along the spine. 
+If you direct yourself toward the Infinite One, your level of consciousness may begin to rise during which your view of reality will come closer to the perspective of the Infinite One and you may experience the layers of reality above human.
+So, there is disappearance of self, rising of consciousness and enlightenment.
+
 Immersion in experiences is a cause of suffering. When you are detached, you see a bigger picture and can make better choices.
 
 Is it better to follow a spiritual system or explore? A spiritual tradition offers you experience and wisdom of generations of spiritual masters. A few traditions have been transmitted and developed for thousands of years. But without being an explorer you won’t find much.
