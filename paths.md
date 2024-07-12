@@ -2,7 +2,7 @@ About
 
 This text is for those who would like to expand their perception of reality. 
 
-It is also for those who seek to vanish before God in order to serve him with absolute dedication. This vanishing leads to the expansion of perception of reality including the perception of Torah and its commandments as they are beyond mental constructs.
+It is also for those who seek a direct connection with God, experience of the content of Torah and deeper understanding of the mechanism and outcomes of the commandments.
 
 The text is intentionally brief because when you do not practice, a text does not matter, when you do practice, a text is not needed.
 
@@ -18,11 +18,9 @@ One is the way of detachment from all experience external to the innermost perce
 
 This way is suitable for everyone. It is simple to understand and it is scientific because it is based on observation and the results are proportionate to persistence.
 
-Those who observe the Commandments will return to oneness with God. As you withdraw yourself from the perception, you let God in and at the same time you return to oneness with God. But if according to your beliefs this is impossible then don’t let reality deceive you.
+Those who observe the Commandments will disappear and only God will remain but at the same time you will not be experiencing God because He is not an external experience. There is no way to describe this state but it is possible to get into this state.
 
 The other way is the way of directing ourselves at what is beyond the perceived reality. This way is suitable for people who intuitively think that there is something beyond what we currently perceive. This is the way of devotion which is usually based on a culture of spiritual teaching dedicated to the ultimate reality, also known as God. At the end of this path, the seeker merges with the ultimate reality and finds out who he is, what the ultimate reality is and what the perceived reality is.
-
-When you turn to God in a prayer or a blessing, when you observe a commandment for God, when you dedicate your actions to God or at least do them together, you vanish before God and thus discover the essence of reality and of your deepest “self”.
 
 Both ways can and should be practiced together but each person will find one of them more natural.
 
@@ -52,7 +50,7 @@ Before meditating, slowly stretch your spine and each joint of your legs in all 
 
 You can kneel or sit with the back upright but relaxed. Put your hands in a comfortable relaxed position. Put the tip of your tongue above the upper teeth. Close your eyes. Relax your breathing, your tongue and your eyes. There are smells, sounds, breathing, thoughts but you are going to sit and not get involved in any of them. Any experience is just a ripple on the surface of your ocean. If you feel discomfort, relax deeper but do not ignore signals related to safety and health. 
 
-Meditation is a cup of water mixed with sand. The longer it stays still, the clearer the water becomes. With time, you’ll be able to sit longer. The longer you sit still, relaxed, not involved in any experience, the clearer your perception will become but keep in mind that any experience is external to you, the innermost perceiver, no matter how blissful and divine it is. With time, stillness and detachment will bring you to detachment from everything, then loss of individuality, then unification with the Infinite One present in everything. Now you are the experiencer and in the experience. This is the point of awakening and enlightenment.
+Meditation is a cup of water mixed with sand. The longer it stays still, the clearer the water becomes. With time, you’ll be able to sit longer. The longer you sit still, relaxed, not involved in any experience, the clearer your perception will become but keep in mind that any experience is external to you, the innermost perceiver, no matter how blissful and divine it is. With time, stillness and detachment will bring you to detachment from everything, then loss of individuality, then unification with the Infinite One present in everything. Now you are the experiencer and in the experience. You know the reality directly instead of knowing about it. This is the point of awakening and enlightenment.
 
 Awakening and enlightenment are not the same. Awakening is who you are. In this case, you are the Infinite One. Enlightenment is what you perceive. It is impossible to describe briefly the fullness of experience from this point of view. If we look at the body as an example, the body lights up with the light of lightness and pleasure. If you are in nature, the air becomes filled with fragrance. The world around turns out to be in a loving harmony with you. And so on.
 
