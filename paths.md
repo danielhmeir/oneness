@@ -117,8 +117,6 @@ There is so much to say about the layers of reality and tremendous energies ther
 
 Levels of mind
 
-This information is not required for returning to Unity but it is helpful because once you know what subconsciously affects your worldview and choices, you will have more opportunities for liberation.
-
 Each person has a natural affinity to one of the 5 broad spheres of life: physical, social, emotional, intellectual, spiritual. Each person has each of the 5 spheres but they are active to various degrees and one of them dominates. Each sphere functions on a scale between 2 extremes: altruism and egoism. 
 
 The lowest level of mind is physical egoism where a person could own land, slaves, gold but in his qualities be opposite to Unity to attain which one’s nature needs to evolve into altruism towards all living beings and the Infinite. 
@@ -126,6 +124,10 @@ The lowest level of mind is physical egoism where a person could own land, slave
 Combination of the strength of each sphere and its position between altruism and egoism defines a person. 
 
 Knowing this you can understand people, how to interact with them, how they perceive you, how to liberate yourself from desires and thoughts that lead you away from Unity.
+
+Groups of people are also dominated by one of these 5 levels and a position between altruism and egoism.
+
+One method of personal growth is to sequentially turn each level of the mind into altruistic starting with the physical level. Whatever good you have, share. Be respectful, grateful and helpful for people, starting with your parents, and for all living beings. Be respectful and grateful to God. Be aware of the constant presence of God. This path will make each level of your mind closer to God.
 
 Groups of people are also dominated by one of these 5 levels and a position between altruism and egoism.
 Now I am going to make a statement which is beyond the perception of most people. Each sphere has a point in the body from which it radiates. It is possible to experience this with minimal healthy nutrition, healthy and stretched spine, deep breathwork connected with emotions towards the Divine, relaxation of body and mind. The physical sphere is a fiery ball in the lower abdomen. The social sphere is a yellow shining from the solar plexus. Each 2 adjacent spheres overlap and interact. For example, interaction of the physical and social spheres strengthens the desire for procreation. The emotional sphere radiates from the center of the chest on the level of the heart. When a person is in a state of peace and compassion, free from social and physical worries, then the color is sky blue. A wise person radiates deep blue from the head. A person who looks at the world and sees beyond the physical radiates a range from indigo to violet depending on the depth of experience. White is the color of the light that enters the body through the top of the head and goes straight through the center of the body feeding all the spheres. Each sphere forms a layer around the central channel and goes into a sphere below it. So when the white light flows in the spiritual sphere the spiritual sphere has a white core and a violet layer around it. Then it descends into the intellectual sphere which has the white core, then a violet layer around it and then its own blue color. Light flows down from the top of the head all the way to the lower abdomen and then returns back. Each sphere opens up like a flower allowing its inner light to become the next sphere.
