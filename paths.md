@@ -119,6 +119,8 @@ Levels of mind
 
 Each person has a natural affinity to one of the 5 broad spheres of life: physical, social, emotional, intellectual, spiritual. Each person has each of the 5 spheres but they are active to various degrees and one of them dominates. Each sphere functions on a scale between 2 extremes: altruism and egoism. 
 
+The strength of a sphere affects the extent of a person’s effect in the world. For example, the effect of the physical sphere may range from interest in one’s own body to affecting the world economy.
+
 The lowest level of mind is physical egoism where a person could own land, slaves, gold but in his qualities be opposite to Unity to attain which one’s nature needs to evolve into altruism towards all living beings and the Infinite. 
 
 Combination of the strength of each sphere and its position between altruism and egoism defines a person. 
