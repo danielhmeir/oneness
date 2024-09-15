@@ -137,9 +137,7 @@ The spheres are located along the center of the body from the physical sphere in
 
 A sphere serves as a filter for the light passing through the central channel. A sphere that does not allow much light to pass through expresses itself as egoistic behavior םמ its level. For example, when the physical sphere does not let the light pass through it, the person is an egoist in the sphere of money, things, territory, physical needs.
 
-Each sphere has a color. 
-
-The physical sphere is a fiery ball in the lower abdomen.
+Each sphere has a color. The physical sphere is a fiery ball in the lower abdomen.
 
 The social sphere is a yellow shining from the solar plexus. Each 2 adjacent spheres overlap and interact. For example, interaction of the physical and social spheres strengthens the desire for procreation. 
 
@@ -149,9 +147,11 @@ A wise person radiates deep blue from the head.
 
 A person who looks at the world and sees beyond the physical radiates a range from indigo to violet depending on the depth of experience. 
 
-White is the color of the light that enters the body through the top of the head and goes straight through the center of the body feeding all the spheres. 
+White is the color of the light that enters the body through the tip of the head and goes straight through the center of the body feeding all the spheres. 
 
-Each sphere forms a layer around the central channel and goes into a sphere below it. So when the white light flows in the spiritual sphere the spiritual sphere has a white core and a violet layer around it. Then it descends into the intellectual sphere which has the white core, then a violet layer around it and then its own blue color. Light flows down from the top of the head all the way to the lower abdomen and then returns back. Each sphere opens up like a flower allowing its inner light to become the next sphere.
+[Here about spread of colors up and down]
+
+Each sphere forms a layer around the central channel and goes into a sphere below it. So when the white light flows in the spiritual sphere the spiritual sphere has a white core and a violet layer around it. Then it descends into the intellectual sphere which has the white core, then a violet layer around it and then its own blue color. Light flows down from the tip of the head all the way to the lower abdomen and then returns back. Each sphere opens up like a flower allowing its inner light to become the next sphere.
 
 As you approach Unity, your perception of reality broadens and this information about the location of levels of mind in the body may help in multiple ways. One way is that you can combine breathing with opening the spheres upward as flowers for God with gratitude and thus increase circulation of light and move your mind upwards into Unity.
 
