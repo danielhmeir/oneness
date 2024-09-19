@@ -127,9 +127,9 @@ Knowing this you can understand people, how to interact with them, how they perc
 
 Groups of people are also dominated by one of these 5 levels of mind, their extent and the position between altruism and egoism.
 
-The lowest level of mind is physical egoism where a person could own land, slaves, gold but in his qualities be opposite to Unity to attain which one’s nature needs to evolve into altruism towards all living beings and the Infinite. 
+The lowest level of mind is physical egoism where a person could own land, things, money but in his qualities be opposite to Unity to attain which one’s nature needs to evolve into altruism towards all living beings and the Infinite. 
 
-One method of personal growth is to sequentially turn each level of the mind into altruistic starting with the physical level. Whatever good you have, share. Be respectful, grateful and helpful for people, starting with your parents, and for all living beings. Be respectful and grateful to God. Be aware of the constant presence of God. This path will make each level of your mind closer to God.
+One method of personal growth is to sequentially turn each level of the mind into altruistic starting with the physical level. Whatever good you have, share. Be respectful, grateful and helpful for people, starting with your parents, and for all living beings. Be respectful and grateful to God. Be aware of the constant presence of God. This path will make each level of your mind closer to God and eventually you will expand into the Infinite.
 
 Now I am going to make a statement which is beyond the perception of most people. Each sphere has a location in the body where it radiates. It is possible to experience this with minimal healthy nutrition, healthy and stretched spine, deep breathwork connected with emotions towards the Divine, relaxation of body and mind.
 
@@ -139,7 +139,7 @@ A sphere serves as a filter for the light passing through the central channel. A
 
 Each sphere has a color. The physical sphere is a fiery ball in the lower abdomen.
 
-The social sphere is a yellow shining from the solar plexus. Each 2 adjacent spheres overlap and interact. For example, interaction of the physical and social spheres strengthens the desire for procreation. 
+The social sphere is a yellow shining from the solar plexus. Each 2 adjacent spheres may overlap and interact. For example, interaction of the physical and social spheres strengthens the desire for procreation.
 
 The emotional sphere radiates from the center of the chest on the level of the heart. When a person is in a state of peace and compassion, free from social and physical worries, then the color is sky blue. 
 
@@ -147,12 +147,19 @@ A wise person radiates deep blue from the head.
 
 A person who looks at the world and sees beyond the physical radiates a range from indigo to violet depending on the depth of experience. 
 
-White is the color of the light that enters the body through the tip of the head and goes straight through the center of the body feeding all the spheres. 
+White is the color of the light that enters the body through the tip of the head and goes straight through the center of the body feeding all the spheres.
 
-[Here about spread of colors up and down]
+Each sphere forms a layer around the central channel and goes into a sphere below it. So when the white light flows in the spiritual sphere the spiritual sphere has a white core and a violet layer around it. Then it descends into the intellectual sphere which has the white core, then a violet layer around it and then its own blue color. Each sphere opens up like a flower allowing its inner light to become the next sphere.
 
-Each sphere forms a layer around the central channel and goes into a sphere below it. So when the white light flows in the spiritual sphere the spiritual sphere has a white core and a violet layer around it. Then it descends into the intellectual sphere which has the white core, then a violet layer around it and then its own blue color. Light flows down from the tip of the head all the way to the lower abdomen and then returns back. Each sphere opens up like a flower allowing its inner light to become the next sphere.
+A dominant sphere brings up the light of the lower spheres and brings down the light of the upper spheres. When the pole at the top of the head completely dominates all spheres, all spheres shine with white light.
 
-As you approach Unity, your perception of reality broadens and this information about the location of levels of mind in the body may help in multiple ways. One way is that you can combine breathing with opening the spheres upward as flowers for God with gratitude and thus increase circulation of light and move your mind upwards into Unity.
+Besides the central channel, the 5 main spheres, the 2 poles, there are more smaller spheres and channels that connect them and it's a magnificent sight but these have the greatest effect.
+
+There are 2 ways to raise the level of mind. One way is to sequentially turn each level of the mind into altruistic starting with the physical level thus raising your mind towards God.
+
+Another way is to strengthen each sphere directly. This way can be done by breathing with that area of the body. I recommend breathing with the good feelings in the heart. Love in the heart brings up the lower spheres and allows the Divine light to flow in. Then focus on the tip of the head. This will raise your mind and will open the flow of Light in but the spine needs to be healthy and the lower spheres must be altruistic, otherwise the existing bad thoughts, feelings and urges will become stronger.
+
+Remember that the experience and the effort are not the goals, they are a path into Oneness.
 
 You and I are One!
+
