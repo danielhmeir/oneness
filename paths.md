@@ -135,17 +135,19 @@ Now I am going to make a statement which is beyond the perception of most people
 
 The spheres are located along the center of the body from the physical sphere in the lower abdomen up to the sphere in the brain. The spheres are connected by a central channel with 2 additional spheres, one in the bottom of the body and one around the tip of the head, that serve as poles and gateways.
 
-A sphere serves as a filter for the light passing through the central channel. A sphere that does not allow much light to pass through expresses itself as egoistic behavior םמ its level. For example, when the physical sphere does not let the light pass through it, the person is an egoist in the sphere of money, things, territory, physical needs.
+When you begin to feel them, you feel them as heat, pulsation and tingling.
+
+A sphere serves as a filter for the light passing through the central channel. A sphere that does not allow much light to pass through expresses itself as egoistic behavior on its level. For example, when the physical sphere does not let the light pass through it, the person is an egoist in the sphere of money, things, territory, physical needs.
 
 Each sphere has a color. The physical sphere is a fiery ball in the lower abdomen.
 
-The social sphere is a yellow shining from the solar plexus. Each 2 adjacent spheres may overlap and interact. For example, interaction of the physical and social spheres strengthens the desire for procreation.
+The social sphere is a yellow shining on the level of the solar plexus. Each 2 adjacent spheres may overlap and interact. For example, interaction of the physical and social spheres strengthens the desire for procreation.
 
-The emotional sphere radiates from the center of the chest on the level of the heart. When a person is in a state of peace and compassion, free from social and physical worries, then the color is sky blue. 
+The emotional sphere radiates from the center of the chest on the level of the heart. Its color depends on what dominates a person. At its best when a person is in a state of peace and compassion, free from social and physical worries, then the color is sky blue. 
 
-A wise person radiates deep blue from the head. 
+A person dominated by reason radiates green. One feels it as a pulsating ball of heat on the level of pharynx. How is pharynx related to reason? Isn’t reasoning a function of the brain? Physically it is. Spheres that I am describing are another, non-physical body with its own anatomy.
 
-A person who looks at the world and sees beyond the physical radiates a range from indigo to violet depending on the depth of experience. 
+A wise person radiates a color from deep blue to violet depending on the depth of wisdom and closeness to the Divine . The area where it pulsates stretches from the forehead to the tip of the head in the shape of a vertical eye.
 
 White is the color of the light that enters the body through the tip of the head and goes straight through the center of the body feeding all the spheres.
 
@@ -162,4 +164,3 @@ Another way is to strengthen each sphere directly. This way can be done by breat
 Remember that the experience and the effort are not the goals, they are a path into Oneness.
 
 You and I are One!
-
