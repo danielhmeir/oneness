@@ -139,27 +139,29 @@ When you begin to feel them, you feel them as heat, pulsation and tingling.
 
 A sphere serves as a filter for the light passing through the central channel. A sphere that does not allow much light to pass through expresses itself as egoistic behavior on its level. For example, when the physical sphere does not let the light pass through it, the person is an egoist in the sphere of money, things, territory, physical needs.
 
-Each sphere has a color. The physical sphere is a fiery ball in the lower abdomen.
+Each sphere has a color. The lowest one is at the bottom of the body. It is red. It prevents the influx of dark energy, it serves as a pole opposite to the white pole at the tip of the head, similar to magnetic poles, it reflects energy that flows down through the upper pole back upwards through a left side channel.
 
-The social sphere is a yellow shining on the level of the solar plexus. Each 2 adjacent spheres may overlap and interact. For example, interaction of the physical and social spheres strengthens the desire for procreation.
+The physical sphere is a fiery ball in the lower abdomen.
+
+The social sphere is a yellow shining on the level of the solar plexus.
 
 The emotional sphere radiates from the center of the chest on the level of the heart. Its color depends on what dominates a person. At its best when a person is in a state of peace and compassion, free from social and physical worries, then the color is sky blue. 
 
-The sphere of reason pulsates as a ball of heat on the level of pharynx. How is pharynx related to reason? Isn’t reasoning a function of the brain? Physically it is. Spheres that I am describing are another, non-physical body with its own anatomy.
+The sphere of reason pulsates as a ball of heat on the level of pharynx. How is pharynx related to reason? Isn’t reasoning a function of the brain? Physically it is. Spheres that I am describing are another, non-physical body with its own anatomy. Nevertheless, this sphere is related to the left half of the brain.
 
-A wise person radiates a color from deep blue to violet depending on the depth of wisdom and closeness to the Divine . The area where it pulsates stretches from the forehead to the tip of the head in the shape of a vertical eye.
+A wise person radiates a color from deep blue to violet depending on the depth of wisdom and closeness to the Divine . The area where it pulsates stretches from the forehead to the tip of the head in the shape of a vertical eye. This sphere is related to the right side of the brain.
 
 White is the color of the light that enters the body through the tip of the head and goes straight through the center of the body feeding all the spheres.
 
-Each sphere forms a layer around the central channel and goes into a sphere below it. So when the white light flows in the spiritual sphere the spiritual sphere has a white core and a violet layer around it. Then it descends into the intellectual sphere which has the white core, then a violet layer around it and then its own blue color. Each sphere opens up like a flower allowing its inner light to become the next sphere.
+Each sphere forms a layer around the central channel and goes into a sphere below it. So when the white light flows in the spiritual sphere the spiritual sphere has a white core and a violet layer around it. Then it descends into the intellectual sphere which has the white core, then a violet layer around it and then its own blue color. Each sphere opens up like a flower allowing its inner light to become the next sphere. Each inner sphere is greater in size than its outer sphere. On the physical level you do not feel yourself farther than the skin. But on the level of energies you start feeling yourself beyond the physical body, bigger with each level.
 
 A dominant sphere brings up the light of the lower spheres and brings down the light of the upper spheres. When the pole at the top of the head completely dominates all spheres, all spheres shine with white light.
 
-Besides the central channel, the 5 main spheres, the 2 poles, there are more spheres and channels that connect them and it's a magnificent sight but they are more related to the flow of energy and less to the level of consciousness.
+Besides the central channel, the 5 main spheres, the 2 poles, there are more spheres and channels that connect them and it's a magnificent sight but they do not define the level of mind.
 
 There are 2 ways to raise the level of mind. One way is to sequentially turn each level of the mind into altruistic starting with the physical level thus raising your mind towards God.
 
-Another way is to strengthen each sphere directly. This way can be done by breathing with that area of the body. I recommend breathing with the good feelings in the heart. Love in the heart brings up the lower spheres and allows the Divine light to flow in. Then focus on the tip of the head. This will raise your mind and will open the flow of Light in but the spine needs to be healthy and the lower spheres must be altruistic, otherwise the existing bad thoughts, feelings and urges will become stronger.
+Another way is to strengthen each sphere directly. This is why I have mentioned the spheres. This way can be done by breathing with that area of the body. I recommend breathing with the good feelings in the heart. Love in the heart brings up the lower spheres and allows the Divine light to flow in. Then focus on the tip of the head. This will raise your mind and will open the flow of Light in but the spine needs to be healthy and the lower spheres must be altruistic, otherwise the existing bad thoughts, feelings and urges will become stronger.
 
 Remember that the experience and the effort are not the goals, they are a path into Oneness.
 
