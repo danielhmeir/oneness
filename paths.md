@@ -145,7 +145,7 @@ The social sphere is a yellow shining on the level of the solar plexus. Each 2 a
 
 The emotional sphere radiates from the center of the chest on the level of the heart. Its color depends on what dominates a person. At its best when a person is in a state of peace and compassion, free from social and physical worries, then the color is sky blue. 
 
-A person dominated by reason radiates green. One feels it as a pulsating ball of heat on the level of pharynx. How is pharynx related to reason? Isn’t reasoning a function of the brain? Physically it is. Spheres that I am describing are another, non-physical body with its own anatomy.
+The sphere of reason pulsates as a ball of heat on the level of pharynx. How is pharynx related to reason? Isn’t reasoning a function of the brain? Physically it is. Spheres that I am describing are another, non-physical body with its own anatomy.
 
 A wise person radiates a color from deep blue to violet depending on the depth of wisdom and closeness to the Divine . The area where it pulsates stretches from the forehead to the tip of the head in the shape of a vertical eye.
 
@@ -155,7 +155,7 @@ Each sphere forms a layer around the central channel and goes into a sphere belo
 
 A dominant sphere brings up the light of the lower spheres and brings down the light of the upper spheres. When the pole at the top of the head completely dominates all spheres, all spheres shine with white light.
 
-Besides the central channel, the 5 main spheres, the 2 poles, there are more smaller spheres and channels that connect them and it's a magnificent sight but these have the greatest effect.
+Besides the central channel, the 5 main spheres, the 2 poles, there are more spheres and channels that connect them and it's a magnificent sight but they are more related to the flow of energy and less to the level of consciousness.
 
 There are 2 ways to raise the level of mind. One way is to sequentially turn each level of the mind into altruistic starting with the physical level thus raising your mind towards God.
 
