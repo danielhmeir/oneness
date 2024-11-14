@@ -133,19 +133,19 @@ One method of personal growth is to sequentially turn each level of the mind int
 
 Now I am going to make a statement which is beyond the perception of most people. Each sphere has a location in the body where it radiates. It is possible to experience this with minimal healthy nutrition, healthy and stretched spine, deep breathwork connected with emotions towards the Divine, relaxation of body and mind.
 
-The spheres are located along the center of the body from the physical sphere in the lower abdomen up to the sphere in the brain. The spheres are connected by a central channel with 2 additional spheres, one in the bottom of the body and one around the tip of the head, that serve as poles and gateways.
+The spheres are located along the center of the body from the physical sphere in the lower abdomen up to the sphere in the brain. The spheres are connected by a central channel with 2 additional spheres, one in the bottom of the body and one around the tip of the head, that serve as poles and gateways. Spheres and poles roughly correspond to the sections of spine: coccyx, sacrum, lumbar, chest, neck, plus the head and the tip of the head. In each area the position of a sphere fluctuates depending on the sub-level of mind within that sphere.
 
 When you begin to feel them, you feel them as heat, pulsation and tingling.
 
-A sphere serves as a filter for the light passing through the central channel. A sphere that does not allow much light to pass through expresses itself as egoistic behavior on its level. For example, when the physical sphere does not let the light pass through it, the person is an egoist in the sphere of money, things, territory, physical needs.
+A sphere serves as a filter for the light passing through the central channel from above and as a purifier for the light flowing back up.
 
-Each sphere has a color. The lowest one is at the bottom of the body. It is red. It prevents the influx of dark energy, it serves as a pole opposite to the white pole at the tip of the head, similar to magnetic poles, it reflects energy that flows down through the upper pole back upwards through a left side channel.
+Each sphere and pole has a color. The bottom pole is at the bottom of the body. It is red. It prevents the influx of dark energy, it serves as a pole opposite to the white pole at the tip of the head, similar to magnetic poles, it reflects energy that flows down through the upper pole back upwards through a left side channel. When this sphere is purified and strong, the person is healthy and is in harmony with the physical nature.
 
-The physical sphere is a fiery ball in the lower abdomen.
+The next sphere is a fiery ball in the lower abdomen. When it is purified and strong, the person is successful in the material life and is in harmony with the flow of life.
 
-The social sphere is a yellow shining on the level of the solar plexus.
+The next sphere is a yellow shining around the navel. When it is purified and strong, the person has a strong character. When a person is in harmony with the energy of nature, this sphere becomes green. As the mind rises, the sphere rises closer to the diaphragm and the person starts to interact with the Divine through intermediaries such as deities and spiritual teachers of the past and present.
 
-The emotional sphere radiates from the center of the chest on the level of the heart. Its color depends on what dominates a person. At its best when a person is in a state of peace and compassion, free from social and physical worries, then the color is sky blue. 
+The next sphere radiates from the chest. It is the sphere of appreciation of beauty. Its color is green. On this level a person can feel submission before One God. Then come gratitude, love, passion, bliss, peace, compassion. At its best a person is in a state of peace and compassion, free from worries, then the color is sky blue. 
 
 The sphere of reason pulsates as a ball of heat on the level of pharynx. How is pharynx related to reason? Isn’t reasoning a function of the brain? Physically it is. Spheres that I am describing are another, non-physical body with its own anatomy. Nevertheless, this sphere is related to the left half of the brain.
 
