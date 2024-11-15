@@ -131,31 +131,36 @@ The lowest level of mind is physical egoism where a person could own land, thing
 
 One method of personal growth is to sequentially turn each level of the mind into altruistic starting with the physical level. Whatever good you have, share. Be respectful, grateful and helpful for people, starting with your parents, and for all living beings. Be respectful and grateful to God. Be aware of the constant presence of God. This path will make each level of your mind closer to God and eventually you will expand into the Infinite.
 
+
 Now I am going to make a statement which is beyond the perception of most people. Each sphere has a location in the body where it radiates. It is possible to experience this with minimal healthy nutrition, healthy and stretched spine, deep breathwork connected with emotions towards the Divine, relaxation of body and mind.
 
-The spheres are located along the center of the body from the physical sphere in the lower abdomen up to the sphere in the brain. The spheres are connected by a central channel with 2 additional spheres, one in the bottom of the body and one around the tip of the head, that serve as poles and gateways. Spheres and poles roughly correspond to the sections of spine: coccyx, sacrum, lumbar, chest, neck, plus the head and the tip of the head. In each area the position of a sphere fluctuates depending on the sub-level of mind within that sphere.
+The spheres are located along the center of the body from the physical sphere in the lower abdomen up to the sphere in the brain. The spheres are connected by a central channel with 2 additional spheres, one in the bottom of the body and one around the tip of the head, that serve as poles and gateways. Spheres and poles roughly correspond to the sections of spine: coccyx, sacrum, lumbar, chest, neck, plus the head and the tip of the head.
 
 When you begin to feel them, you feel them as heat, pulsation and tingling.
 
 A sphere serves as a filter for the light passing through the central channel from above and as a purifier for the light flowing back up.
 
-Each sphere and pole has a color. The bottom pole is at the bottom of the body. It is red. It prevents the influx of dark energy, it serves as a pole opposite to the white pole at the tip of the head, similar to magnetic poles, it reflects energy that flows down through the upper pole back upwards through a left side channel. When this sphere is purified and strong, the person is healthy and is in harmony with the physical nature.
+Each sphere and pole has a color. The bottom pole is at the bottom of the body. It radiates red. It prevents the influx of dark energy, it serves as a pole opposite to the white pole at the tip of the head, similar to magnetic poles, it reflects energy that flows down through the upper pole back upwards through a left side channel. When this sphere is purified and strong, the person is healthy and is in harmony with the physical nature.
 
 The next sphere is a fiery ball in the lower abdomen. When it is purified and strong, the person is successful in the material life and is in harmony with the flow of life.
 
-The next sphere is a yellow shining around the navel. When it is purified and strong, the person has a strong character. When a person is in harmony with the energy of nature, this sphere becomes green. As the mind rises, the sphere rises closer to the diaphragm and the person starts to interact with the Divine through intermediaries such as deities and spiritual teachers of the past and present.
+The next sphere is a yellow shining between the navel and the solar plexus. When it is purified and strong, the person has a strong and active character. When a person is in harmony with the energy of nature, this sphere becomes green. As the mind rises up the spine, the person starts to interact with the Divine through intermediaries such as deities and spiritual teachers of the past and present.
 
-The next sphere radiates from the chest. It is the sphere of appreciation of beauty. Its color is green. On this level a person can feel submission before One God. Then come gratitude, love, passion, bliss, peace, compassion. At its best a person is in a state of peace and compassion, free from worries, then the color is sky blue. 
+The next sphere radiates from the chest. It is the sphere of appreciation of beauty. Its color is green. On this level a person can feel submission before One God. Then come gratitude, love, passion, bliss, peace, compassion. At its best a person is in a state of peace and compassion, free from worries, then the color is sky blue. This sphere is dominated by the higher 2 spheres as described below.
 
-The sphere of reason pulsates as a ball of heat on the level of pharynx. How is pharynx related to reason? Isn’t reasoning a function of the brain? Physically it is. Spheres that I am describing are another, non-physical body with its own anatomy. Nevertheless, this sphere is related to the left half of the brain.
+The next sphere is between the throat and the root of the tongue. When it is purified and strong, the person has clear reasoning and expression. Anatomically reasoning is in the left hemisphere of the brain but on the level of energies, this sphere is related to reasoning. When reason dominates, this sphere radiates green and it dominates the sphere of the chest. This sphere is dominated by the sphere above it.
 
-A wise person radiates a color from deep blue to violet depending on the depth of wisdom and closeness to the Divine . The area where it pulsates stretches from the forehead to the tip of the head in the shape of a vertical eye. This sphere is related to the right side of the brain.
+The next sphere is the sphere of wisdom. Anatomically it is in the right hemisphere. On the level of energies one feels it between the forehead and the tip of the head in the shape of a vertical eye. This sphere allows us to step out, look at everything from a side and make a choice based not only on pure facts, patterns and reasoning but on a bigger picture of life. This is the sphere of the inner eye, innermost self and its dissolution in the face of the Divine. The innermost self projects itself on the screen of the mind and thus is aware of itself. Its color is between blue and violet depending on the depth of wisdom and its closeness to the Divine. When wisdom dominates, the colors of the two lower spheres of reason and chest become blue.
 
 White is the color of the light that enters the body through the tip of the head and goes straight through the center of the body feeding all the spheres.
 
-Each sphere forms a layer around the central channel and goes into a sphere below it. So when the white light flows in the spiritual sphere the spiritual sphere has a white core and a violet layer around it. Then it descends into the intellectual sphere which has the white core, then a violet layer around it and then its own blue color. Each sphere opens up like a flower allowing its inner light to become the next sphere. Each inner sphere is greater in size than its outer sphere. On the physical level you do not feel yourself farther than the skin. But on the level of energies you start feeling yourself beyond the physical body, bigger with each level.
+Each sphere forms a layer around the central channel and goes into a sphere below it. So when the white light flows into the sphere of wisdom, the sphere has a white core and a violet/blue layer around it. Then it descends into the intellectual sphere which has the white core, then a violet layer around it and then its own blue/green color. Each sphere opens up like a flower allowing its inner light to become the next sphere. Each inner sphere is greater in size than its outer sphere. On the physical level you do not feel yourself farther than the skin. But on the level of energies you start feeling yourself beyond the physical body, bigger with each level.
 
-A dominant sphere brings up the light of the lower spheres and brings down the light of the upper spheres. When the pole at the top of the head completely dominates all spheres, all spheres shine with white light.
+A dominant sphere brings up the light of the lower spheres and brings down the light of the upper spheres. 
+
+When all the spheres are purified and the mind has risen all the way to the pole at the tip of the head and this pole is fully open, white light shines down through all the spheres. This is why it is called enlightenment. 
+
+The pole at the tip of the head also serves as a gateway for the mind to the upper reality which is the inner layer of the physical reality but Divine. It is the reality of peace, harmony, love, connection.
 
 Besides the central channel, the 5 main spheres, the 2 poles, there are more spheres and channels that connect them and it's a magnificent sight but they do not define the level of mind.
 
@@ -163,6 +168,9 @@ There are 2 ways to raise the level of mind. One way is to sequentially turn eac
 
 Another way is to strengthen each sphere directly. This is why I have mentioned the spheres. This way can be done by breathing with that area of the body. I recommend breathing with the good feelings in the heart. Love in the heart brings up the lower spheres and allows the Divine light to flow in. Then focus on the tip of the head. This will raise your mind and will open the flow of Light in but the spine needs to be healthy and the lower spheres must be altruistic, otherwise the existing bad thoughts, feelings and urges will become stronger.
 
-Remember that the experience and the effort are not the goals, they are a path into Oneness.
+There are four stages of spiritual growth: raising of the mind along the spine, enlightenment, awakening into Oneness, stepping down from Oneness into direct and loving connection with It when you give space to the Beloved and you treat beings who experience themselves as distinct with compassion.
+
+Remember that Oneness is not an experience of Oneness, it is being the One beyond all experience.
 
 You and I are One!
+
