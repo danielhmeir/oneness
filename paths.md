@@ -142,11 +142,11 @@ A sphere serves as a filter for the light passing through the central channel fr
 
 Each sphere and pole has a color. The bottom pole is at the bottom of the body. It radiates red. It prevents the influx of dark energy, it serves as a pole opposite to the white pole at the tip of the head, similar to magnetic poles, it reflects energy that flows down through the upper pole back upwards through a left side channel. When this sphere is purified and strong, the person is healthy and is in harmony with the physical nature.
 
-The next sphere is a fiery ball in the lower abdomen. When it is purified and strong, the person is successful in the material life and is in harmony with the flow of life.
+The next sphere is a fiery ball in the lower abdomen. When it is purified and strong, the person is successful in the material life and is in harmony with the flow of life. This is also the sphere of reproductive energy.
 
 The next sphere is a yellow shining between the navel and the solar plexus. When it is purified and strong, the person has a strong and active character. When a person is in harmony with the energy of nature, this sphere becomes green. As the mind rises up the spine, the person starts to interact with the Divine through intermediaries such as deities and spiritual teachers of the past and present.
 
-The next sphere radiates from the chest. It is the sphere of appreciation of beauty. Its color is green. On this level a person can feel submission before One God. Then come gratitude, love, passion, bliss, peace, compassion. At its best a person is in a state of peace and compassion, free from worries, then the color is sky blue. This sphere is dominated by the higher 2 spheres as described below.
+The next sphere radiates from the chest. It is the sphere of appreciation of beauty. Its color is green. On this level a person can feel submission before One God. Then come appreciation, gratitude, love, passion, bliss, peace, compassion. At its best a person is in a state of peace and compassion, free from worries, then the color is sky blue. This sphere is dominated by the higher 2 spheres as described below.
 
 The next sphere is between the throat and the root of the tongue. When it is purified and strong, the person has clear reasoning and expression. Anatomically reasoning is in the left hemisphere of the brain but on the level of energies, this sphere is related to reasoning. When reason dominates, this sphere radiates green and it dominates the sphere of the chest. This sphere is dominated by the sphere above it.
 
@@ -173,4 +173,5 @@ There are four stages of spiritual growth: raising of the mind along the spine, 
 Remember that Oneness is not an experience of Oneness, it is being the One beyond all experience.
 
 You and I are One!
+
 
