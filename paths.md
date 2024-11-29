@@ -156,6 +156,10 @@ Balance between reason and wisdom affects the mind, the heart and the energy. Th
 
 White is the color of the light that enters the body through the tip of the head and goes straight through the center of the body feeding all the spheres.
 
+| dominated by reason  | dominated by wisdom |
+|---|---|
+| ![](./spheres-1.png)  | ![](./spheres-4.png) |
+
 Each sphere forms a layer around the central channel and goes into a sphere below it. So when the white light flows into the sphere of wisdom, the sphere has a white core and a violet/blue layer around it. Then it descends into the intellectual sphere which has the white core, then a violet layer around it and then its own blue/green color. Each sphere opens up like a flower allowing its inner light to become the next sphere. Each inner sphere is greater in size than its outer sphere. On the physical level you do not feel yourself farther than the skin. But on the level of energies you start feeling yourself beyond the physical body, bigger with each level.
 
 A dominant sphere brings up the light of the lower spheres and brings down the light of the upper spheres. 
