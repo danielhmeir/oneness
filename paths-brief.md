@@ -18,4 +18,14 @@ Immersion in experiences is a cause of suffering. When you are detached, you see
 
 Is it better to follow a spiritual system or explore? A spiritual tradition offers you experience and wisdom of generations of spiritual masters. A few traditions have been transmitted and developed for thousands of years. But without being an explorer you won’t find much.
 
-to continue…
+How to choose a spiritual tradition? Most people are born to parents who belong to a spiritual tradition or their parents did. Study it. See if it can make you more respectful, caring, appreciative towards all beings. See if it can expand your mind regarding the mind itself, the nature of reality and beyond in an experiential way. If not, there definitely are spiritual traditions that can. 
+Beware of teachings that deify their founders.
+Beware of teachings that allow special privileges to its more senior adherents.
+Beware of teachings that promise rewards except for serving others.
+Beware of teachings that encourage donations in exchange for benefits.
+Beware of teachings that spread themselves by force.
+Beware of teachings that are harmful for health, family, society, that allow harmful income, that do not encourage intellectual exploration.
+
+Teachings focus on various levels of consciousness. There are teachings that focus on peace with the flow of life. There are teachings that focus on harmony with the energy of nature. There are teachings that teach about Infinity but require an intermediary such as a person who lived in the past or living presently or a spiritual force. There are teachings that teach submission before God. There are teachings that teach love towards God. But the deepest experience is the disappearance of a separate “I” and as the result living in peace and love with God being compassionate and helpful to all beings.
+
+
