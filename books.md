@@ -58,6 +58,7 @@ Lucid dreaming is an experience that although takes place in dreams shows us add
 ## Psychology
 
 - [The Map of Consciousness](https://www.amazon.com/dp/1401959644?psc=1&ref=ppx_yo2ov_dt_b_product_details) by David Hawkins explains the levels of human consciousness. It's a must for everyone.
+- My take on the levels of consciousness based on Qabbala, Yoga and experience is [here](levels-of-consciousness.md)
 
 ## Transurfing
 
