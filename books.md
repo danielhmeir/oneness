@@ -26,6 +26,7 @@ I chose these books because they list the steps on the path of personal growth. 
 - [Yoga Upanishads](yoga-upanishads.pdf) are 20 texts describing Yoga and some of them describing how to do yoga, including meditation. Printed version is [here]([)](https://www.amazon.com/dp/8185141584).
 - [Yoga Yajnavalkya](https://www.amazon.com/Yoga-Yajnavalkya-G-Mohan/dp/9810716486/). One of India's earliest and most influential texts on yoga practice step by step. It is more detailed in some areas than the more known Yoga Sutras of Patanjali. The Sanskrit text is in [this book](yoga-yajnavalkya.pdf).
 - [Pratyabhijnahrdayam](pratyabhijnahrdayam.pdf), or The Essence of Self-Recognition, explains the essence of the Kashmiri Shaivism. It lists the steps leading to the final liberation.
+- Vijnana Bhairava that also belongs to Kashmiri Shaivism and lists 112 meditation techniques. There are multiple versions online. I find [this edition](https://www.amazon.com/dp/0981622844?ref=ppx_yo2ov_dt_b_fed_asin_title) useful.  
 
 I listed the books in the historic order as I understand it and I think it is good to read them in this order for better understanding.
 
