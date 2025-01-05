@@ -52,11 +52,15 @@ People interested in possessions may attain harmony with the flow of life.
 
 People with ambitions may attain harmony with the energy of nature.
 
-People dominated by emotions may perceive being surrounded by the Divine. On the lower levels they perceive the Divine through intermediaries such as people of the past and present or imaginary deities. Then people feel submission before the Divine. Then come gratitude, love, passion, bliss, peace, compassion.
+People dominated by emotions may perceive being surrounded by the Divine. On the lower levels they perceive the Divine through intermediaries such as people of the past and present or imaginary deities. Then people feel submission before the Divine directly without intermediaries. Then come gratitude, love, passion, bliss, peace, compassion.
 
 People dominated by reason cannot perceive anything by reason. Reason is a useful tool but it is a barrier to perception even when it says that there is something beyond.
 
 The next levels of consciousness seek and attain vanishing in the face of the Beyond.
+
+**Groups**
+
+Each ethnic and cultural group also belongs to one of these levels of consciousness. Over time societies change, usually upward.
 
 **How to identify**
 
