@@ -6,14 +6,14 @@ Understanding the levels will allow you to understand why certain thoughts come 
 
 **Body**. When the physical level of consciousness is well developed, the person dedicates time and effort to physical health. When this level of consciousness is altruistic, the person helps others be healthy.
 
-**Possessions and family**. On this level of consciousness a person dedicates time to acquire material possessions such as money and property. When this level is altruistic, the person shares the possessions and helps others acquire what they need. People on this level of consciousness are also interested in establishing a family.
+**Possessions** and **family**. On this level of consciousness a person dedicates time to acquire material possessions such as money and property. When this level is altruistic, the person shares the possessions and helps others acquire what they need. People on this level of consciousness are also interested in establishing a family.  
 When this level is weak, a person may resort to taking others’ possessions.
 
-**Status**. On this level of consciousness a person dedicates time to acquiring a status. When this level is altruistic, the person respects and helps others which results in a good reputation.
+**Status**. On this level of consciousness a person dedicates time to acquiring a status. When this level is altruistic, the person respects and helps others which results in a good reputation.  
 When this level is weak, a person may resort to obtaining the status by force.
 
-**Beauty**. On this level of consciousness a person dedicates time to making the body and the surroundings beautiful, enjoys going to beautiful places, makes tasty and beautiful food, enjoys fragrances, makes beautiful music, makes pleasant visual art, finds beauty in math and philosophy and in everyone and everything. An altruist creates beauty for others.
-The opposite of enjoying and sharing beauty is experiencing and emitting bad feelings.
+**Beauty**. On this level of consciousness a person dedicates time to making the body and the surroundings beautiful, enjoys going to beautiful places, makes tasty and beautiful food, enjoys fragrances, makes beautiful music, makes pleasant visual art, finds beauty in math and philosophy and in everyone and everything. An altruist creates beauty for others.  
+The opposite of enjoying and sharing beauty is experiencing and emitting bad feelings.  
 People on this level are motivated by feelings which may lead to destructive outcomes.
 
 **Intellect**. On this level of consciousness the mind craves to understand reality. An altruist wants to share the discoveries. 
@@ -28,35 +28,35 @@ People on this level are motivated by feelings which may lead to destructive out
 
 For growth, a person should establish constructive routines on each level, make them available to others and move on to the next one. 
 
-On the physical level one should establish healthy routines for sleep, hygiene, food, physical activity and rest. Then make them available to others. [Body]
+On the **physical** level one should establish healthy routines for sleep, hygiene, food, physical activity and rest. Then make them available to others. \[Body\]
 
-On the next level one should acquire income that is not harmful and to manage finances thoughtfully. One should allocate a part of the income to charity or to volunteer. On this level a person should also establish a healthy relationship. [Possessions and family]
+On the next level one should acquire income that is not harmful and to manage finances thoughtfully. One should allocate a part of the income to charity or to volunteer. On this level a person should also establish a healthy relationship. \[**Possessions** and **family**\]
 
-On the next level one should treat others with respect, gratitude and care. [Status]
+On the next level one should treat others with respect, gratitude and care. \[**Status**\]
 
-On the next level one should develop the ability to be grateful for everything. [Emotions]
+On the next level one should develop the ability to be grateful for everything. \[**Emotions**\]
 
-On the next level one should develop pattern recognition, ability to see connections, ability to reason, ability to ask questions and apply these to problem solving and creativity. The best tool for this is math. Most people have rudimentary ideas about math and find it useless, boring and hard. But it is the main instrument to improve thinking. And only then you see where your thinking was before. One option is to study a field where math is applied such as some sciences and technologies. Then make these methods available to others. [Intellect]
+On the next level one should develop pattern recognition, ability to see connections, ability to reason, ability to ask questions and apply these to problem solving and creativity. The best tool for this is math. Most people have rudimentary ideas about math and find it useless, boring and hard. But it is the main instrument to improve thinking. And only then you see where your thinking was before. One option is to study a field where math is applied such as some sciences and technologies. Then make these methods available to others. \[**Intellect**\]
 
-On the next level you should realize that any experiences, including thoughts and feelings, are outside of you. You observe them and choose to focus on them. At this stage you should learn to observe without intervening. Every day allocate at least 45 minutes to sit with a straight back and over time you will detach layer by layer from all experiences and will return to being you at which point you’ll stop being individual but you’ll return being the One Source of everything. [Vanishing into the Beyond]
+On the next level you should realize that any experiences, including thoughts and feelings, are outside of you. You observe them and choose to focus on them. At this stage you should learn to observe without intervening. Every day allocate at least 45 minutes to sit with a straight back and over time you will detach layer by layer from all experiences and will return to being you at which point you’ll stop being individual but you’ll return being the One Source of everything. \[**Vanishing** into the **Beyond**\]
 
-The last level of return will happen by itself. [Return]
+The last level of return will happen by itself. \[**Return**\]
 
-**Attitude to the Beyond**
+**Attitude towards the Beyond**
 
 Each level of consciousness guides not only how we function in the physical world but how we perceive what is broadly called spiritual.
 
-People dominated by the body may attain harmony with nature.
+People dominated by the **body** may attain harmony with nature.
 
-People interested in possessions may attain harmony with the flow of life.
+People interested in **possessions** may attain harmony with the flow of life.
 
-People with ambitions may attain harmony with the energy of nature.
+People with ambitions may attain harmony with the energy of nature. \[**status**\]
 
-People dominated by emotions may perceive being surrounded by the Divine. On the lower levels they perceive the Divine through intermediaries such as people of the past and present or imaginary deities. Then people feel submission before the Divine directly without intermediaries. Then come gratitude, love, passion, bliss, peace, compassion.
+People dominated by **emotions** may perceive being surrounded by the Divine. On the lower levels they perceive the Divine through intermediaries such as people of the past and present or imaginary deities. Then people feel submission before the Divine directly without intermediaries. Then come gratitude, love, passion, bliss, peace, compassion.
 
-People dominated by reason cannot perceive anything by reason. Reason is a useful tool but it is a barrier to perception even when it says that there is something beyond.
+People dominated by **reason** cannot perceive anything by reason. Reason is a useful tool but it is a barrier to perception even when it says that there is something beyond.
 
-The next levels of consciousness seek and attain vanishing in the face of the Beyond.
+The next levels of consciousness seek and attain **vanishing** in the face of the **Beyond**.
 
 **Groups**
 
@@ -66,5 +66,16 @@ Each ethnic and cultural group also belongs to one of these levels of consciousn
 
 To identify the level of consciousness of oneself and others, observe what criteria guide decisions. Observe how one spends the free time.
 
-Once you know what guides a person or a group of people, you know what to expect and how to interact.
+Once you know what guides a person or a group of people, you know what to expect and how to interact.  
 Once you know what guides you, you know where to grow next.
+
+| Level | Positive | Negative | Excessive | How it feels |
+| :---- | :---- | :---- | :---- | :---- |
+| Vanished | Self awareness as not being an individual but Infinite Source of everything | Observing the reality from an individual perspective | Thinking that you are there while not being there | Awareness of being the Infinite Source  |
+| Beyond | Self awareness as the innermost observer of reality | Self awareness immersed into experiences | Being addicted to information about the Beyond without practicing meditation.  | Awareness of being |
+| Reason | Perfected pattern recognition and reasoning | Reason without compassion | Discarding what falls out of the current worldview. Process over essence. | Mental vigor, clarity, peace |
+| Beauty | Gratitude | Bad emotions | Chasing pleasures | Feeling of beauty |
+| Status | Respect others | Striving for power | Spending all available time acquiring and increasing possessions | Energy of the air and nature. |
+| Possessions and family | Non harmful income enough for needs for oneself and family. | Income from using others | Spending all available time acquiring and increasing possessions | Reproductive energy |
+| Body | Health | Death | Spending all available time improving body and health. | Physical vigor |
+
