@@ -1,5 +1,4 @@
 (בעבור חבר)
-
 (For a friend)
 
 דיברנו על הדרכים המקרבות לה׳ ממש ואף על כך שרבים כמהים לעומק רוחני ולחוויה רוחנית ממשית.
@@ -7,14 +6,12 @@
 We were talking about the ways to come close to Hashem, and also about the fact that many people yearn for spiritual depth and a direct spiritual experience.
 
 אתחיל מהתכלית בקיצור וארחיב בהמשך: אי אפשר להתקרב לה׳ כדרך שמתקרבים לחפץ ברם אפשר לראות שהמציאות מסתירה את ה׳ ואז להתנתק מהמציאות ובכלל זה מעצמך. מצב זה מכונה התבטלות. כאן מעבר לכל המציאות נמצא רק אינסוף והמציאות נובעת ממנו .כאן אי אפשר לומר "אתה" לה׳ מפני שאתה הנפרד לא קיים ואז תראה שבמצב שאינך קיים אי אפשר לאהוב את ה׳ ואז אתה נסוג מההתבטלות קמעא כדי לעובדו ולסייע לאחרים להתקרב אליו ממש.
-
 First I will write a few words about the essence and later I will go into the details. It is impossible to come close to Hashem the way one approaches an object, however, it is easy to see that reality veils Hashem, and then to step back from the immersion into all reality, including from your unique self. Here, behind all reality, you exist as a non individual One Infinity, and reality flows from you. Here it is impossible to say "You" to Hashem because the separate you does not exist, and then you will see that in a state where you do not exist, it is impossible to love Hashem, and then you step back from the Oneness in order to serve Hashem and to help others truly come close to Him.
-
 להלן אתאר שתי דרכים שמקרבות לה׳.
 
 Below I will describe two ways that bring one close to Hashem.
 
-דרך אחת היא פשוט להיות אתו, לעשות הכל יחד, לדבר אליו ולהתיחס למציאות כאל אמצעי הקשר אתו. ואם אתה חייב להתרכז במשהו, שוב אל ה׳ מיד אחרי כן.
+דרך אחת היא פשוט להיות אתו, לעשות הכל יחד, לדבר אליו ולהתיחס למציאות כאל אמצעי הקשר אתו. ואם אתה חייב להתרכז במשהו, שוב אל ה׳ מיד לאחר מכן.
 
 One way is simply to be with Him, to do everything together, to speak to Him and to treat reality as a medium of connection with Him. And if you have to focus on something, return to Hashem immediately afterward.
 
@@ -30,7 +27,7 @@ If the thought of stepping out of all reality, including your unique self, and r
 
 How to detach. Every experience is a wave on the surface of the ocean, observe without intervening. Every feeling, every thought, everything that draws the consciousness, even the most exalted experiences are just waves, let them pass.
 
-אחרי שתתנתק מהכל, כולל מהיותך פרט מיוחד ונפרד, תבין למה ה׳ ברא בני אדם שסבורים שהם נבדלים ממנו: על מנת שנהיה אתו. הבנה זו גורמת לך לעשות צעד אחורה מההתבטלות ועכשיו אתה אף מחובר עם ה׳ ואף מסוגל להיות אתו. כאן חשוב לזכור שכל חוויית החיבור עם ה׳ ונוכחותו היא רק חוויה חיצונית לה׳ שהוא המקור אך אינו חוויה ולא ניתן לחוות אותו. ההתבטלות שתיארתי לעיל היא מחוץ לכל חוויה.
+לאחר שתתנתק מהכל, כולל מהיותך פרט מיוחד ונפרד, תבין למה ה׳ ברא בני אדם שסבורים שהם נבדלים ממנו: על מנת שנהיה אתו. הבנה זו גורמת לך לעשות צעד אחורה מההתבטלות ועכשיו אתה אף מחובר עם ה׳ ואף מסוגל להיות אתו. כאן חשוב לזכור שכל חוויית החיבור עם ה׳ ונוכחותו היא רק חוויה חיצונית לה׳ שהוא המקור אך אינו חוויה ולא ניתן לחוות אותו. ההתבטלות שתיארתי לעיל היא מחוץ לכל חוויה.
 במצב הזה של חיבור עם ה׳ אתה באופן טבעי רק רוצה לעשות כל דבר למענו וזה לא משאיר זמן לשום דבר לא מהותי.
 
 After you detach from everything, including your being unique and separate, you will understand why Hashem created human beings who think they are separate from Him: in order for us to be with Him. This understanding causes you to take a step back from Oneness, and now you are both connected with Hashem and capable of being with Him. Here it is important to remember that every experience of connection with Hashem and His presence is only an experience external to Hashem, who is the source but is not an experience and cannot be experienced. Oneness I described above is outside of any experience. In this state of connection with Hashem, you naturally only want to do everything for His sake, and this leaves no time for anything unessential.
@@ -47,11 +44,15 @@ What I described above is the essence. The essence is covered in many garments d
 Of all that I have listed, breathing is worthy of detailing. When you breathe, receive the breath with gratitude and exhale gratitude towards Hashem. Gratitude leads to love, love to joy. Without joy, any connection with Hashem lacks sincerity. Joy is only an experience, however, without it, the connection with Hashem in our reality is not sincere. 
 It is important that you know that when you open the vessels of the soul to receive the light of Hashem, it is preferable that the vessels be purified. The light is like water that breaks barriers and waters both good herbs and weeds. Everything that is not purified in the body, in emotions, in urges, in desires, in habits, in reactions, in attitudes, in thoughts might be strengthened and block the light. Anyone who aspires to truly come close to Hashem must purify all his garments.
 
+לאחר שנסוגת מההתבטלות הראשונה כדי לעבוד את ה׳, עדיף שתקבע עתים להתבטלות.
+
+After you withdraw from the first Oneness in order to serve Hashem, set fixed times for returning into Oneness.
+
 במה זה שונה. אנו שואפים אל ה׳ שמחוץ לפרוכת המציאות ואין אנו מתיחסים לשום חלק של המציאות כאילו היא חלק של ה׳. אין אנו רוצים רק להתבטל אלא להתבטל ולהיות עם ה׳ ולעובדו. אנו משתמשים בחומר כדי לעבוד את ה׳. אנו מקיימים את מצוותיו רק מפני שהוא ציוונו ובשמחה ולא על מנת לקבל פרס. אנו אוהבים בריות בכנות ולא לשם תועלת. הרעיונות שמניתי לעיל מעלות את התודעה לשם קיום המצוות.
 
 How is this different? We aspire to Hashem who is outside the veil of reality, and we do not relate to any part of reality as if it were a part of Hashem. We do not want only to return to Oneness, but to return to Oneness and to be with Hashem and to serve Him. We use the physical world in order to serve Hashem. We fulfill His commandments only because He commanded us, and with joy, and not in order to receive a reward. We love living beings sincerely and not for the sake of benefit. The ideas I listed above elevate the consciousness for the sake of fulfilling the commandments.
 
-לא כל אחד מסוגל להבין את ענין החיבור עם ה׳ מפני שיש בני אדם שאינם רואים מעבר לחומר. בן אדם כזה יכול להימצא בשלום מוחלט עם החיים ובגלל השלום אינו זקוק ללכת מעבר לחומר. יש אנשים שבתודעתם קיים משהו מעבר לחומר ברם אצלם זה כוח בלא תכונות שפועל בלא מודעות. יש אנשים שבתודעתם קיים ה׳ בחומר מפני שכך קל להתחבר אתו. יש אנשים שרוצים להתחבר עם ה׳ שמעבר לחומר ברם מאמצם מביא לידי קיצוניות. יש אנשים שמתחברים עם ה׳ ביראה ובהתשתעבדות ובכניעה בלבד ברם הלב מתחיל נפתח כשיש הודיה שיכולה להביא לידי אהבה ואהבה לידי שמחה ושמחה לידי התבטלות. רבים נחסמים על ידי השכל שמתאמץ להבין כל חוויה. אחרי מחסום השכל יש אנשים שמשתקעים בחוויות אלוקיות. ורק אלו שהולכים מעבר לכל חוויות מתבטלים לפני ה׳ ומתקרבים אליו כמה שניתן.
+לא כל אחד מסוגל להבין את ענין החיבור עם ה׳ מפני שיש בני אדם שאינם רואים מעבר לחומר. בן אדם כזה יכול להימצא בשלום מוחלט עם החיים ובגלל השלום אינו זקוק ללכת מעבר לחומר. יש אנשים שבתודעתם קיים משהו מעבר לחומר ברם אצלם זה כוח בלא תכונות שפועל בלא מודעות. יש אנשים שבתודעתם קיים ה׳ בחומר מפני שכך קל להתחבר אתו. יש אנשים שרוצים להתחבר עם ה׳ שמעבר לחומר ברם מאמצם מביא לידי קיצוניות. יש אנשים שמתחברים עם ה׳ ביראה ובהתשתעבדות ובכניעה בלבד ברם הלב מתחיל נפתח כשיש הודיה שיכולה להביא לידי אהבה ואהבה לידי שמחה ושמחה לידי התבטלות. רבים נחסמים על ידי השכל שמתאמץ להבין כל חוויה. לאחר מחסום השכל יש אנשים שמשתקעים בחוויות אלוקיות. ורק אלו שהולכים מעבר לכל חוויות מתבטלים לפני ה׳ ומתקרבים אליו כמה שניתן.
 
 Not everyone is capable of understanding the idea of connection with Hashem because there are people who do not see beyond matter. Such a person can be in absolute peace with life and because of the peace does not need to go beyond matter. 
 There are people in whose consciousness there exists something beyond matter, however for them it is a force without traits that acts without awareness. 
@@ -65,5 +66,3 @@ And only those who go beyond all experiences come close to Hashem in essence.
 לסיכום, אם אתה כמה להתקרב לה׳, זכור שהוא כבר כאן ברם המציאות, ובכלל זה אתה, מסתירה אותו. עבוד אותו בשמחה ועזור לאחרים להתחבר אתו.
 
 To sum up, if you yearn to come close to Hashem, remember that He is already here, however reality, including you, hides Him. Serve Him with joy and help others connect with Him.
-
-
