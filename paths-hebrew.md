@@ -5,7 +5,8 @@
 
 We were talking about the ways to come close to Hashem, and also about the fact that many people yearn for spiritual depth and a direct spiritual experience.
 
-אתחיל מהתכלית בקיצור וארחיב בהמשך: אי אפשר להתקרב לה׳ כדרך שמתקרבים לחפץ ברם אפשר לראות שהמציאות מסתירה את ה׳ ואז להתנתק מהמציאות ובכלל זה מעצמך. מצב זה מכונה התבטלות. כאן מעבר לכל המציאות נמצא רק אינסוף והמציאות נובעת ממנו .כאן אי אפשר לומר "אתה" לה׳ מפני שאתה הנפרד לא קיים ואז תראה שבמצב שאינך קיים אי אפשר לאהוב את ה׳ ואז אתה נסוג מההתבטלות קמעא כדי לעובדו ולסייע לאחרים להתקרב אליו ממש.
+אתחיל מהתכלית בקיצור וארחיב בהמשך: אי אפשר להתקרב לה׳ כדרך שמתקרבים לחפץ ברם אפשר לראות שהמציאות מסתירה את ה׳ ואז להתנתק מהמציאות ובכלל זה מעצמך. מצב זה מכונה התבטלות. כאן מעבר לכל המציאות נמצא רק אינסוף והמציאות נובעת ממנו. כאן אי אפשר לומר "אתה" לה׳ מפני שאתה הנפרד לא קיים ואז תראה שבמצב שאינך קיים אי אפשר לאהוב את ה׳ ואז אתה נסוג מההתבטלות קמעא כדי לעובדו ולסייע לאחרים להתקרב אליו ממש.
+
 First I will write a few words about the essence and later I will go into the details. It is impossible to come close to Hashem the way one approaches an object, however, it is easy to see that reality veils Hashem, and then to step back from the immersion into all reality, including from your unique self. Here, behind all reality, you exist as a non individual One Infinity, and reality flows from you. Here it is impossible to say "You" to Hashem because the separate you does not exist, and then you will see that in a state where you do not exist, it is impossible to love Hashem, and then you step back from the Oneness in order to serve Hashem and to help others truly come close to Him.
 להלן אתאר שתי דרכים שמקרבות לה׳.
 
@@ -27,7 +28,7 @@ If the thought of stepping out of all reality, including your unique self, and r
 
 How to detach. Every experience is a wave on the surface of the ocean, observe without intervening. Every feeling, every thought, everything that draws the consciousness, even the most exalted experiences are just waves, let them pass.
 
-לאחר שתתנתק מהכל, כולל מהיותך פרט מיוחד ונפרד, תבין למה ה׳ ברא בני אדם שסבורים שהם נבדלים ממנו: על מנת שנהיה אתו. הבנה זו גורמת לך לעשות צעד אחורה מההתבטלות ועכשיו אתה אף מחובר עם ה׳ ואף מסוגל להיות אתו. כאן חשוב לזכור שכל חוויית החיבור עם ה׳ ונוכחותו היא רק חוויה חיצונית לה׳ שהוא המקור אך אינו חוויה ולא ניתן לחוות אותו. ההתבטלות שתיארתי לעיל היא מחוץ לכל חוויה.
+לאחר שתתנתק מהכל, כולל מהיותך פרט מיוחד ונפרד, תבין למה ה׳ ברא בני אדם שסבורים שהם נבדלים ממנו: על מנת שנהיה אתו. הבנה זו גורמת לך לעשות צעד אחורה מההתבטלות ועכשיו אתה אף מחובר עם ה׳ ואף מסוגל להיות אתו. כאן חשוב לזכור שכל חוויית החיבור עם ה׳ ונוכחותו היא רק חוויה חיצונית לה׳ שהוא המקור ברם אינו חוויה ולא ניתן לחוות אותו. ההתבטלות שתיארתי לעיל היא מחוץ לכל חוויה.
 במצב הזה של חיבור עם ה׳ אתה באופן טבעי רק רוצה לעשות כל דבר למענו וזה לא משאיר זמן לשום דבר לא מהותי.
 
 After you detach from everything, including your being unique and separate, you will understand why Hashem created human beings who think they are separate from Him: in order for us to be with Him. This understanding causes you to take a step back from Oneness, and now you are both connected with Hashem and capable of being with Him. Here it is important to remember that every experience of connection with Hashem and His presence is only an experience external to Hashem, who is the source but is not an experience and cannot be experienced. Oneness I described above is outside of any experience. In this state of connection with Hashem, you naturally only want to do everything for His sake, and this leaves no time for anything unessential.
@@ -58,7 +59,7 @@ Not everyone is capable of understanding the idea of connection with Hashem beca
 There are people in whose consciousness there exists something beyond matter, however for them it is a force without traits that acts without awareness. 
 There are people in whose consciousness Hashem exists in matter because it is easy to connect with Him that way. 
 There are people who want to connect with Hashem who is beyond matter, however their effort leads to extremism. 
-There are people who connect with Hashem in awe, subjugation, and submission alone, however the heart begins to open when there is gratitude, which can lead to love, and love to joy, and joy to nullification. 
+There are people who connect with Hashem in awe, subjugation, and submission alone, however the heart begins to open when there is gratitude, which can lead to love, and love to joy, and joy to nullification before Hashem. 
 Many are blocked by the intellect, which makes an effort to understand every experience. 
 Past the barrier of the intellect, there are people who immerse themselves in Divine experiences. 
 And only those who go beyond all experiences come close to Hashem in essence.
@@ -66,3 +67,27 @@ And only those who go beyond all experiences come close to Hashem in essence.
 לסיכום, אם אתה כמה להתקרב לה׳, זכור שהוא כבר כאן ברם המציאות, ובכלל זה אתה, מסתירה אותו. עבוד אותו בשמחה ועזור לאחרים להתחבר אתו.
 
 To sum up, if you yearn to come close to Hashem, remember that He is already here, however reality, including you, hides Him. Serve Him with joy and help others connect with Him.
+
+ועכשיו אסביר כמה מושגים שרבים אינם מבחינים ביניהם.
+
+And now, I will explain several concepts that many do not distinguish between.
+
+התעוררות היא שהיה בהתבטלות שתיארתי לעיל.
+
+Awakening is the state of self-nullification that I described above.
+
+הארה היא התבטלות הגוף בתוך האור שזורם לתוכו דרך הקודקוד כשהשכל רגוע ועמוד השדרה בריא ואין מחסומים אחרים בגוף ובנפש.
+אפשר להיות נאור ולא נעור מפני שמי שהוא נאור יכול להיות שקוע בעונג ההארה. הליכה בכיוון ההארה היא טיהור הלבושים שתיארתי לעיל ברם אינה תנאי להתבטלות.
+
+Enlightenment is the state in which the body is permeated with the Light that flows into it through the tip of the head when the mind is calm, the spine is healthy, and there are no other blockages in the body and feelings. It is possible to be enlightened and not awakened, because someone who is enlightened can be immersed in the pleasure of enlightenment. Walking toward the enlightenment is the purification of the "garments" that I described above; however, it is not a precondition for awakening.
+
+רמת התודעה היא הגובה שממנו אתה חווה את המציאות. אפשר להתבטל בכל רמת התודעה. אפשר לעלות לרמות גבוהות יותר. עליה זו 
+נקראת עליית הנשמה ברם היא דורשת זהירות ולא ארחיב. היא עשויה להתגלות למי שהולך בכיוון ההארה ומשם להתבטלות.
+
+Level of consciousness is the height from which you experience reality. It is possible to awaken at any level of consciousness. It is possible to ascend to higher levels. This ascent requires caution and therefore I will not elaborate. It may be revealed to someone who is walking toward the enlightenment and from there toward the awakening.
+
+אף על פי שעליית הנשמה והארה והתבטלות הן מצבים עלאים שרבים שואפים להגיע אליהם, יציאה מהתבטלות גמורה כדי להיות עם ה׳ ולעובדו ולהעיר אחרים היא הרוחניות האמיתית.
+
+Even though the ascent of consciousness, enlightenment and awakening are the ultimate states that many aspire to reach, stepping out of awakening in order to be with Hashem, to serve Him, and to awaken others — this is the true spirituality.
+
+דניאל נורייב, ה׳ תשפ׳׳ב
